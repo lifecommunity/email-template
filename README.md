@@ -179,3 +179,73 @@ impliqué dans des opérations de renseignement américaines.13 Après son maria
 partent en 1937 pour une lune de miel dans une Espagne déchirée par la guerre.14 Les jeunes mariés font du stop.
 J'ai marché jusqu'au front avec l'écrivain Dorothy Parker. Ils ont rencontré 
 Ernest Hemingway, qui leur a offert une bouteille de whisky écossais.
+
+
+
+LA DISTRIBUTION DE L'OPÉRATION EUROPÉENNE QUE J O N E S A D W I T- 
+d’abord en Allemagne, puis en Espagne, était une version extrême du 
+troubles dans son propre pays. L'Amérique de Gatsby le magnifique avait donné 
+chemin vers l’Amérique des Raisins de la colère de John Steinbeck ; l'ère du jazz 
+avait cédé la place à la Dépression. A Wall Street, le krach d'octobre 
+L’année 1929 fut suivie d’une série d’effondrements au début des années 1930. Les investisseurs ont fui 
+le marché était en masse et les maisons de courtage animées se taisaient ;  il a été dit  
+que l'on pouvait parcourir les célèbres canyons près de la bourse et  
+n'entendez que le cliquetis des dés de backgammon à travers les fenêtres ouvertes.15 
+Mais ce qui est frappant chez Jones, compte tenu de ses aventures de jeunesse avec le 
+infiltré de gauche, c'est qu'il est sorti de cette tourmente avec plus de sang-froid 
+qu'avant.  Il s'est attaqué avec ambition aux plus grandes questions de son  
+âge, mais ses conclusions étaient plutôt modérées. 
+La politique de Jones a émergé de ses écrits en tant que sociologue et journaliste.
+est.  À la fin des années 1930, alors que la menace nazie se propageait à travers l’Europe, Jones   
+plongé dans les recherches de sa thèse de doctorat, motivé par une envie  
+pour comprendre si la même calamité pourrait s’abattre sur son propre pays.16 
+Son sujet de thèse reflétait la préoccupation de la gauche politique pour les questions de classe. 
+structure. Il s’efforçait de mettre en lumière les liens entre les politiques écologiques des Américains.
+les conditions économiques et leurs attitudes envers la propriété ; son objectif était « de 
+aider à découvrir dans quelle mesure, dans nos idées fondamentales, nous sommes un peuple uni, et 
+dans quelle mesure nous sommes une maison divisée. »17 À la fin de 1938 et au début de 1939, Jones 
+décampé avec Mary dans un foyer de conflit industriel, Akron, Ohio, et 
+organisé une équipe d’assistants pour mener 1 700 entretiens sur le terrain. Sujet-
+En soumettant les résultats de son entretien à une série de tests statistiques, il a conclu que  
+Les divisions économiques aiguës ne se sont pas réellement répercutées sur un monde polarisé.
+vues. C'était un rejet des hypothèses socialistes de sa jeunesse et un 
+témoignage de la vitalité de la démocratie américaine. 
+La thèse de Jones, parue sous la forme d’un livre intitulé Life, Liberty and Property 
+en 1941, il est devenu un manuel standard de sociologie.  Pendant ce temps, il servait à  
+lancez Jones dans une autre carrière, cette fois en tant que journaliste.  Fortune 
+Le magazine a publié la thèse sous forme condensée et a également proposé à Jones un 
+ 
+emploi; il s'est inscrit avec plaisir, même s'il trouvait l'écriture difficile. Dans 
+Dans un essai publié en 1942, Jones prévenait que la politique économique de Roosevelt 
+l’étatisme devrait être démantelé une fois la guerre terminée.18 Son respect pour 
+le marché, ce qui a confirmé son retrait du socialisme vers le politique.
+centre cal, était mitigé avec un intérêt continu pour les programmes de redistribution. 
+« L’idéal, écrit-il dans Fortune, était une sorte de mélange gauche-droite :
+aussi efficace que possible dans la protection du libre marché et aussi radical que nécessaire dans 
+assurer le bien-être du peuple. 
+En 1948, une mission d'écriture pour Fortune donna à Jones l'occasion de 
+se tourner vers la finance, un sujet qu'il avait largement ignoré depuis son passage 
+avec un conseiller en investissement deux décennies plus tôt.  L'essai qui en résulte,  
+paru en mars 1949 sous le titre « Fashions in Forecast-
+ing », anticipaient de nombreux hedge funds qui lui ont succédé. L'essai 
+a commencé par attaquer la « méthode standard et démodée de prévision ».
+cours du marché boursier », qui devait examiner les wagons de marchandises  
+chargements, prix des matières premières et autres données économiques pour déterminer comment 
+les actions devraient être valorisées.  Cette approche de la valorisation boursière n'a pas réussi   
+capturer une grande partie de ce qui se passait : Jones a cité des moments où les actions  
+avait fortement changé en l’absence de données économiques modifiées.  Ayant  
+écarté l’analyse fondamentale, Jones tourna son attention vers ce qu’il  
+On pensait qu'il s'agissait d'une hypothèse plus rentable : l'idée selon laquelle les cours des actions 
+motivé par des modèles prévisibles dans la psychologie des investisseurs.  L'argent pourrait être  
+une abstraction, une série de symboles numériques, mais c'était aussi un support  
+à travers lequel l'avidité, la peur et la jalousie s'exprimaient ; c'était un 
+baromètre de la psychologie des foules.19 Il était peut-être naturel qu’un sociologue 
+devrait trouver cette hypothèse séduisante. 
+Jones pensait que les émotions des investisseurs créaient des tendances dans les cours des actions. UN 
+la hausse du marché boursier génère l’optimisme des investisseurs, qui à son tour génère
+entraîne une nouvelle hausse du marché, ce qui génère davantage d'optimisme, et 
+bientôt; et cette boucle de rétroaction fait monter les cours des actions, créant une tendance qui 
+peut être suivi avec profit. L'astuce consiste à renflouer au moment où 
+la psychologie s’inverse – lorsque la boucle de rétroaction a fait monter les prix 
+à un niveau insoutenable, et l'avidité se transforme en peur, et il y a un renversement 
+du pendule. Les prévisionnistes que Jones dirigeait dans Fortune proposèrent
