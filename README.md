@@ -248,4 +248,129 @@ bientôt; et cette boucle de rétroaction fait monter les cours des actions, cr�
 peut être suivi avec profit. L'astuce consiste à renflouer au moment où 
 la psychologie s’inverse – lorsque la boucle de rétroaction a fait monter les prix 
 à un niveau insoutenable, et l'avidité se transforme en peur, et il y a un renversement 
-du pendule. Les prévisionnistes que Jones dirigeait dans Fortune proposèrent
+du pendule. Les prévisionnistes que Jones dirigeait dans Fortune proposèrent de nouvelles méthodes pour attraper ces points de bascule. Certains pensaient que si le 
+L'indice Dow Jones était en hausse alors que la plupart des actions individuelles baissaient, le 
+le rassemblement était sur le point de s’essouffler. D'autres ont soutenu que si les cours des actions augmentaient 
+mais le volume des échanges baissait, le marché haussier manquait d'acheteurs 
+et la marée allait bientôt s'inverser. Tous partageaient le point de vue selon lequel les graphiques boursiers tenaient 
+le secret de la réussite financière, car les schémas des graphiques se répètent 
+eux-mêmes. 
+Dans sa déférence envers les prévisionnistes qui observent les cartes, Jones semblait étrangement  
+ignorant de l’économie académique. En 1933 et 1944, Alfred Cowles, l'un des 
+des pères de l'économie statistique, avait publié deux études
+des milliers de recommandations d’investissement émises par les professionnels de la finance.
+titreurs.  Le premier de ces deux articles s’intitulait « Can Stock Market  
+Prévisions des prévisionnistes ? Le résumé de trois mots répondait à la question : « Il 
+est douteux. » Jones a cité le travail de Cowles de manière sélective dans Fortune, mentionnant 
+en passant, le capitaine avait trouvé des preuves de tendances dans les prix mensuels. 
+Il a négligé de mentionner que Cowles n'avait trouvé aucune tendance lorsqu'il examinait la situation.
+prix indiqués signalés à intervalles de trois semaines, et il n'a pas non plus dit que Cowles  
+avait conclu que toute apparence de tendances sur les marchés était trop faible 
+et peu fiable pour être négocié de manière rentable.20 Pourtant, malgré les superfi -
+Dans la lecture officielle de Cowles, il y avait au moins un point sur lequel les deux hommes voyaient 
+être d’accord : tous deux pensaient que les prévisionnistes de marché qui réussissaient ne pouvaient pas  
+pérenniser leurs performances. Le fait même de prévoir une tendance était susceptible 
+pour le détruire. Supposons, par exemple, qu'un voyant financier puisse savoir quand un 
+la tendance à la hausse allait se maintenir pendant plusieurs jours jusqu'à ce que le marché 
+atteint un certain niveau. L'argent suivrait ce conseil, faisant monter les prix jusqu'à 
+immédiatement le niveau prévu et coupant la tendance à ses débuts. 
+Les prévisionnistes accéléreraient ainsi le fonctionnement du marché.  
+tout en travaillant sans emploi. Comme Jones l'a conclu dans son Fortune 
+pièce, les tendances des prix cesseraient. Le marché serait laissé « fluctuer » 
+d'une manière relativement douce et ordonnée pour s'adapter aux fondamentaux 
+changements économiques uniquement. 
+À un point qu’il n’aurait pu prévoir, Jones avait anticipé
+retraçant l'histoire des hedge funds.  Au cours des décennies suivantes, la vague  
+suite à une vague d'innovateurs financiers, ils ont repéré des opportunités de profi t 
+ 
+marchés, et beaucoup d’entre eux ont constaté qu’une fois leur vision comprise
+soutenu par un nombre suffisant d'investisseurs, l'opportunité de profit s'est estompée  
+parce que les marchés étaient devenus plus efficaces. Dans les années 1950 et 1960, 
+Jones lui-même était destiné à imposer une nouvelle efficacité aux marchés. Mais 
+la nature de ce changement n’était pas du tout celle à laquelle il s’attendait. 
+À L'HEURE, LES FORTUITS DITES SONT APPUYÉES EN MARS   
+En 1949, Jones lance le premier fonds spéculatif au monde.  Ce n'était pas ça  
+il s'était soudain passionné pour la finance ; au contraire, il était 
+plus préoccupé par sa migration politique du libéralisme vers le social-
+isme et retour, et avec les plaisirs du jardinage dans son nouveau pays  
+maison dans le Connecticut.21 Mais, maintenant à la fin de la quarantaine, avec deux enfants et 
+goûts chers de New York, il décida qu’il avait besoin d’argent.22 Ses efforts 
+gagner plus dans le journalisme avait fait long feu : il avait quitté le staff de Fortune 
+espérant lancer un nouveau magazine, mais deux projets n'avaient pas réussi à attirer 
+soutien financier. Coincé dans ces projets d'édition, Jones a déménagé 
+plan B. Il a collecté 60 000 $ auprès de quatre amis et a investi 40 000 $ de son argent. 
+propre à s'essayer à l'investissement. 
+Le bilan d’investissement de Jones au cours des vingt années suivantes fut l’un des plus remarquables.  
+le plus remarquable de l'histoire. En 1968, il avait accumulé un rendement cumulatif 
+d'un peu moins de 5 000 pour cent, ce qui signifie que l'investisseur qui lui avait donné 
+10 000 $ en 1949 valaient désormais la coquette 480 000 $23. Il quitta sa compétition.
+dans la poussière : par exemple, au cours des cinq années précédant 1965, il a rendu 325 
+pour cent, éclipsant le rendement de 225 pour cent du fonds commun de placement le plus populaire pour 
+cette période.  Au cours des dix années précédant 1965, Jones gagna presque deux fois plus que  
+autant que son concurrent le plus proche.24 Selon certaines mesures, la performance de Jones 
+dans ces années-là, rivalisait même avec celui de Warren Buffett.25 
+L’entreprise d’investissement de Jones a commencé dans un appartement miteux d’une pièce et demie 
+bureau sur Broad Street. Il a loué un espace auprès d'une entreprise d'assurance appartenant à 
+par l'un de ses investisseurs, Winslow Carlton, un homme élégant qui privilégiait le bleu 
+chemises à col blanc et cravates bien nouées et qui conduisait un mag-
+magnifique cabriolet Packard. Certains matins de ces premières années, Carlton 
+ferait sortir son resplendissant véhicule de son garage, et il 
+ 
+se rendre à l'appartement de Jones au 30 Sutton Place, et tous les deux 
+continuerait dans l'East Side sans le toit, échangeant des prédictions 
+sur le marché. Jones gardait une machine à écrire Royal sur son bureau et un dictionnaire-
+aire monté sur un support. Il y avait un téléscripteur boursier avec un verre 
+dôme dessus, une machine à calculer électromécanique que vous avez actionnée 
+à la main, et un canapé sur lequel Jones aimait faire une sieste après ses déjeuners. 26 
+Jones a décidé de voir s'il pouvait traduire les conseils des observateurs des cartes. 
+en bénéfices d’investissement. Mais c'est la structure de son fonds qui était vraiment 
+innovant. La pratique habituelle des investisseurs professionnels était de charger 
+avec des actions alors que le marché était censé augmenter et détenir beaucoup de 
+en espèces alors qu'on s'attendait à ce qu'il s'effondre. Mais Jones a amélioré ces options. 
+Lorsque les graphiques signalaient un marché haussier, il ne se contentait pas de mettre 100 pour-
+cent de son fonds en actions ; il a emprunté pour être, disons, à 150 pour cent 
+« long », ce qui signifie qu'il possédait des actions d'une valeur d'une fois et demie la valeur  
+valeur de son capital. En revanche, lorsque les cartes signalaient des problèmes, 
+Jones ne s’est pas contenté de se tourner vers l’argent liquide. Il a réduit son exposition en vendant 
+actions « à découvert » – en les empruntant à d’autres investisseurs et en les vendant 
+l'attente que leur prix baisse, auquel cas ils pourraient être 
+racheté avec profit. 
+L'effet de levier et la vente à découvert avaient été utilisés dans les années 1920, principalement par 
+spéculant avec leur propre argent.27 Mais le traumatisme de 1929 a 
+donné une mauvaise réputation aux deux techniques, et elles ont été considérées comme trop racées pour 
+professionnels chargés de l’épargne d’autrui. L’innovation de Jones consistait à 
+voir comment ces méthodes pourraient être combinées sans aucune racine - il 
+Il a utilisé « des moyens spéculatifs à des fins conservatrices », comme il le disait fréquemment.  Par   
+vendre une partie de son fonds à découvert par mesure de précaution de routine, même lorsque le 
+les graphiques n’indiquaient pas de baisse, Jones pouvait assurer son portefeuille contre les marchés.
+risque de marché. Cela lui a permis de faire le plein de titres prometteurs sans se soucier 
+à propos d’un effondrement de l’indice Dow Jones : « Vous pourriez acheter davantage de bonnes actions 
+sans prendre autant de risques que quelqu'un qui a simplement acheté », comme l'a dit Jones 
+28 Alors que les investisseurs traditionnels ont dû vendre des sociétés en vogue comme Xerox ou 
+Polaroid si le marché paraissait bancal, un hedge fund pourrait en tirer profit 
+une sélection de titres intelligente, même lorsque le marché semblait surévalué. 
+Dans un prospectus distribué en privé à ses partenaires extérieurs en 1961,  
+ 
+Jones a expliqué la magie de la couverture à l'aide d'un exemple29. 
+sont deux investisseurs dotés chacun de 100 000 $.  Supposons que chacun soit  
+tout aussi compétent dans la sélection de titres et optimiste quant au marché. Le 
+premier investisseur, opérant selon les principes classiques de gestion de fonds,  
+investit 80 000 $ dans les meilleures actions qu’il peut trouver tout en gardant le solde 
+de 20 000 $ en obligations sûres. Le deuxième investisseur, opérant sur le principe de Jones,
+ciples, emprunte 100 000 $ pour se donner un trésor de guerre totalisant 200 000 $, 
+puis achète pour 130 000 $ de bonnes actions et vend à découvert pour 70 000 $ de titres. 
+les mauvais.  Cela donne au deuxième investisseur une diversification supérieure dans son  
+positions longues : ayant 130 000 $ avec lesquels jouer, il peut acheter une gamme plus large 
+de stocks. Cela lui donne également moins d'exposition au marché : sa valeur de 70 000 $ 
+de positions courtes compense 70 000 $ de positions longues, donc son « exposition nette » au marché
+Le marché est de 60 000 $, alors que le premier investisseur a une exposition nette de 80 000 $. Dans 
+de cette façon, l’investisseur en hedge funds encourt moins de risque de sélection de titres (car 
+de diversification) et moins de risque de marché (du fait de la couverture). 
+Ça s'ameliore. Considérez l’effet sur les bénéfices de Jones. Supposons que le stock 
+l'indice du marché augmente de 20 pour cent et, parce qu'ils sont bons en bourse  
+sélection, les investisseurs dans l’exemple de Jones voient leurs positions longues battre le marché 
+de dix points, soit une augmentation de 30 pour cent. Les paris courts des hedged 
+L'investisseur s'en sort également bien : si l'indice augmente de 20 pour cent, ses shorts  
+augmenter de seulement 10 pour cent parce qu'il a choisi avec succès des entreprises qui 
+fonctionnent moins bien que la moyenne. La performance des deux investisseurs sera 
+ressemble à ca
