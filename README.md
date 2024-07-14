@@ -1258,3 +1258,227 @@ indépendant une personnalité à intégrer dans l’entreprise de Weymar, et Jo
 déposer une offre d'emploi; il était heureux d’accepter l’argent de démarrage de Commodities Corporation, mais il ne voulait pas la rejoindre.56 La difficulté de recruter des artistes vedettes combinée aux dépenses importantes de Weymar pour créer une crise au sein de l’entreprise ; et en 1984, une révolte interne a contraint Weymar à promettre une réduction des frais généraux et un retour à « la vie simple ».57 Bien qu’elle ait persévéré par la suite, Commodities Corporation n’a jamais retrouvé son ancienne verve. Le centre de gravité s’est déplacé : de Weymar vers une population plus jeune, de l’idylle de Princeton vers une nouvelle génération de hedge funds new-yorkais.
 
 chapitre 4
+
+
+
+1 0 1 L'A L C H E M I S T   
+à travers le plancher avant de prendre des bénéfices sur les positions courtes.  "Quand ils  
+"J'ai vu un ordre comme celui-là, ils ont rendu le marché très, très bas", a déclaré Soros plus tard. 
+se souvient-il avec regret.   
+La décision de Soros d’aller au cash ce jour-là a peut-être été la pire de ses décisions 
+carrière, ce qui a coûté à son fonds environ 200 millions de dollars.54 Cela a mis un terme à une course cataclysmique : 
+En environ une semaine, Quantum était passé d'une hausse de 60 pour cent pour le 
+année à une baisse d'environ 10 pour cent ; 840 millions de dollars avaient disparu55. 
+Cet épisode a démontré une faiblesse des hedge funds qui hanterait le  
+l’industrie au cours des années suivantes : plus les fonds augmentaient, plus il devenait difficile  
+entrer et sortir des marchés sans perturber les prix et endommager 
+eux-mêmes dans le processus.  Si Quantum avait été plus petit, Soros pourrait  
+ont renfloué lundi aussi rapidement que Druckenmiller ;  et il  
+aurait pu vendre sa position jeudi sans provoquer une chute des prix. 
+Le style de trading de Soros supposait la capacité d’agir en un rien de temps, et lorsque cela 
+Cette hypothèse s’est avérée fausse, Soros était en difficulté. 
+
+de nombreux gestionnaires de fonds. Des personnages fiers se retirèrent en position fœtale : 
+"J'étais tellement déprimé cet automne-là que je ne voulais pas continuer", se souviendra plus tard Michael Steinhardt ; « Ma confiance a été ébranlée. Je me sentais seul. »56 Soros n’a ressenti qu’un léger écho de ces sentiments.  Il était fatigué de courir  
+Quantum, comme il l'avait confié à Druckenmiller avant même le crash ;  
+l’option d’arrêter était toujours quelque part dans sa conscience. Mais son 
+ce nerf n’était pas mis en doute, ni en 1987, ni d’ailleurs à aucun moment, et dans les 
+la communauté des fans de Soros, la manière dont il s'est rétabli après le crash 
+compte parmi ses plus grandes réalisations.  Une semaine ou deux après Black  
+Lundi, Soros a repéré une opportunité de vendre à découvert le dollar et il a mis le cap sur le dollar. 
+une position courageuse et à effet de levier, comme si rien de fâcheux ne s'était produit.  
+Le dollar a chuté et le pari a été gagné. Quantum a terminé 1987 
+13 pour cent, alors qu'il croupissait dans le rouge seulement deux mois plus tôt. 
+Au lendemain du Black Monday, il y avait eu d’inévitables ricanements. Un 
+source anonyme a gloussé au Times de Londres : « Il a fallu 20 ans pour 
+faire de George Soros un génie ; quatre jours pour en faire un imbécile. »57 Un article dans 
+
+Forbes a rappelé le regrettable optimisme de Soros dans l’article de couverture de Fortune. 
+quelques semaines plus tôt. « Si George Soros, le riche, immensément vaniteux et 
+célèbre gestionnaire de fonds d’origine hongroise, apparaît à côté d’un titre jaillissant sur la couverture d’un magazine économique : vendez vos actions », ricana-t-il58. 
+Les rapports faisant état du revers de Quantum se sont rapidement propagés à l’Europe de l’Est, où  
+on craignait que cela mette un terme à la philanthropie de Soros aux États-Unis. 
+région; Soros s'est rendu en Hongrie pour rassurer le Premier ministre sur la poursuite de ses dons. Mais à la fin de 1987, les rumeurs sur la mort financière de Soros s’étaient révélées prématurées. Financial World a coté Soros 
+comme le deuxième revenu le plus élevé de Wall Street. Le meilleur chien n'était autre 
+que Paul Tudor Jones, chartiste et passionné de Patton. 
+L'acte Lazarus de 1987, s'ajoutant aux tueries perpétrées sur la Plaza 
+l’accord deux ans plus tôt, a consolidé le statut de Soros en tant qu’investisseur  
+héros. Mais cela a également eu une influence plus large, car l’exemple de Soros a beaucoup contribué à
+créer ce qui est devenu connu sous le nom de hedge fund « macro », du moins dans sa forme 
+incarnation moderne. De 1924 jusqu'à sa mort en 1946, John Maynard 
+Keynes a investi la dotation, le College Chest, du King's College,  
+Cambridge, sur les marchés mondiaux, et bien que le terme « hedge fund » 
+n'existait pas encore, il employait de nombreux appareils que les macros modernes  
+les gestionnaires le reconnaîtraient. Il a spéculé sur les devises, les obligations et les actions, et il l'a fait à l'échelle mondiale ;  il a été à la fois long et court, et  
+il a amplifié les rendements grâce à l'effet de levier. Après la Seconde Guerre mondiale, une inflation stable, 
+les taux d’intérêt réglementés et les monnaies immobiles ont provoqué la disparition de la tradition d’investissement macroéconomique de Keynes – ironiquement, Keynes lui-même avait contribué à cette disparition. 
+négocier la fixation des taux de change lors de la conférence de Bretton Woods. 
+Après l’effondrement du système de Bretton Woods dans les années 1970, le macro-investissement 
+a recommencé à remuer. Mais au début, il l’a fait avec hésitation. 
+Deux courants d'investisseurs ont contribué à sa relance.  Types d'actions tels que  
+Michael Steinhardt s'est rendu compte que les variations des taux d'intérêt pourraient entraîner la  
+la bourse, comme nous l'avons vu ; à partir des années 1980, ils ont adopté la logique 
+prochaine étape et parier directement sur l'évolution des taux d'intérêt en spéculant sur  
+obligations, d’abord aux États-Unis, puis à l’échelle internationale.59 Entre-temps,  
+les investisseurs en matières premières tels que Michael Marcus et Bruce Kovner ont commencé 
+faire du commerce du coton, de l'or, etc.;  mais à mesure que les marchés des matières premières se sont créés  
+
+nouveaux contrats sur les devises et les taux d'intérêt, ils ont commencé à surfer sur ces  
+instruments. Cependant, jusqu’à la publication de L’Alchimie de Soros, l’équité 
+et les traditions marchandes sont restées distinctes. Les investisseurs en actions sont venus 
+d’une culture dominée par l’analyse fondamentale. Les négociants en matières premières sont issus d’une culture dominée par les graphiques et le suivi des tendances.  Mais  
+L’exemple de Soros avait quelque chose pour les deux tribus. L'expérience en temps réel 
+en Alchimie, il combinait l'analyse fondamentale avec une croyance dans les tendances ; il combinait le langage des économistes avec les instincts d’un observateur de graphiques. Dans 
+De cette façon, Soros a réussi à communiquer avec les deux moitiés de la maison des hedge funds, rappelant à chacune qu’il y avait de la sagesse chez l’autre.60 
+quelques années, des spécialistes des matières premières comme Paul Tudor Jones et des spécialistes des actions 
+Comme Stan Druckenmiller, ils étaient simplement considérés comme des « macro-investisseurs ».
+   
+Lundi a été choisi pour une signification plus profonde.  Finance moderne 
+l’ingénierie, qui s’est ensuite confondue avec les hedge funds dans l’esprit du public, était 
+blâmé pour la débâcle.  Les ingénieurs avaient créé une boucle de rétroaction déstabilisante : une chute du marché déclenchait des ventes basées sur l’assurance, ce qui 
+à son tour déclenché une nouvelle baisse du marché et une nouvelle 
+vente. Mark Rubinstein, professeur d'économie à Berkeley et co-inventeur 
+de l'assurance de portefeuille, devenue ce qu'il reconnaîtra plus tard comme une 
+dépression clinique. Il s'inquiète du fait que l'affaiblissement des marchés américains 
+pourrait inciter l’Union soviétique à attaquer, le rendant personnellement responsable d’un conflit nucléaire.62 
+Ce n’est pas la première fois que l’innovation financière est également mise en cause.  
+vivement.  Soros avait cru que l’assurance de portefeuille avait créé le Black Monday ; mais les marchés s'étaient effondrés périodiquement tout au long de l'histoire, et les marchés étrangers 
+les marchés, dans lesquels il y avait beaucoup moins d’assurance de portefeuille, ont également subi des chutes abruptes.  Même aux États-Unis, les post-mortems sur le crash  
+a découvert que sur les 39 milliards de dollars d'actions vendues le 19 octobre via le 
+à terme et sur les marchés au comptant, seulement environ 6 milliards de dollars de ventes ont été réalisés. 
+déclenchés par les assureurs de portefeuille. Les méchants low-tech étaient tout aussi importants. 
+De nombreux investisseurs avaient des ordres permanents auprès des courtiers pour vendre si leurs positions 
+
+a chuté, et ces politiques stop-loss à l’ancienne ont pu expliquer au 
+au moins autant de vente que d’assurance de portefeuille. Par ailleurs, les craintes d'un crash avaient 
+La situation était très répandue à l'approche de l'événement, il y avait donc également des explications psychologiques à ce chaos. Une histoire dans l'Atlantique Mensuel à 
+l'époque était intitulée « Le parallèle de 1929 » et le Wall Street Journal publiait un article le matin du lundi noir superposant un graphique 
+du récent déclin du marché sur un graphique du marché des années 1920.
+Les outils de la finance n’étaient, en fin de compte, que des outils. Les gens ont acheté un portefeuille 
+assurance ou mettre des ordres stop-loss en raison de l’atmosphère nerveuse de 
+le moment.   
+Quel que soit le rôle de l’assurance de portefeuille, la grande leçon du krach 
+était différent. Les girations de Wall Street ont porté un coup paralysant à l’économie. 
+théories du marché efficace que Soros a longtemps critiquées.  Au cours  
+d'une semaine, la valeur des entreprises américaines avait rebondi comme un  
+boule de pachinko; il n'y avait rien d'efficace là-dedans, et il n'y avait pas non plus de 
+signe d'équilibre. "La théorie de la réflexivité peut expliquer de telles bulles, 
+alors que l’hypothèse d’un marché efficace ne le peut pas », écrivit plus tard Soros, et  
+d’une manière générale, il avait raison.65 Ce n’est sûrement pas une coïncidence si les marchés efficaces 
+la pensée est née sur les campus universitaires américains dans les années 1950   
+et les années 1960 – les enclaves les plus stables au sein du pays le plus stable du monde.  
+l'époque la plus stable de mémoire. Soros, qui a survécu à l'Holocauste, le 
+la guerre et la pénurie à Londres avaient une vision différente de la vie ; et après la nature 
+du lundi noir, le consensus académique a commencé à se dégager pour 
+lui. Le krach a été une humiliation pour Soros en termes d’investissement. Mais 
+en termes intellectuels, c'était une justification. 
+La refonte du consensus académique comportait trois parties.  Le  
+ L’hypothèse d’un marché efficient a toujours été fondée sur une situation précaire. 
+hypothèse : que les changements de prix étaient conformes à une probabilité « normale »  
+distribution - celle représentée par la courbe en cloche familière, dans laquelle  
+les chiffres situés au niveau et à proximité de la médiane apparaissent fréquemment tandis que les chiffres dans  
+les queues de distribution sont rares au point de disparaître. Même dans le 
+au début des années 1960, un mathématicien non-conformiste nommé Benoît Mandelbrot affirmait 
+que les queues de la distribution pourraient être plus grosses que la cloche normale  
+courbe supposée ; et Eugene Fama, le père de la théorie du marché efficace, 
+
+qui a connu Mandelbrot à l'époque, a effectué des tests sur le cours des actions 
+des changements qui ont confirmé l’affirmation de Mandelbrot. Si les changements de prix avaient été 
+normalement distribués, les sauts supérieurs à cinq écarts types devraient 
+sont apparus dans les données de prix quotidiennes environ une fois tous les sept mille ans. 
+Au lieu de cela, ils apparaissaient environ une fois tous les trois ou quatre ans. 
+Ayant fait cette découverte, Fama et ses collègues l'ont enterrée.  Le  
+Le problème avec la vision de Mandelbrot était qu’elle était trop difficile à vivre.  
+avec; cela rendait inutiles les outils statistiques de l’économie financière, puisque 
+la modélisation des distributions anormales était un problème largement non résolu dans 
+mathématiques.  Paul Cootner, théoricien du marché efficace et cofondateur  
+de Commodities Corporation, s’est plaint que « Mandelbrot, comme Prime 
+Le ministre Churchill avant lui, nous promet non pas une utopie mais du sang, de la sueur, 
+labeur et larmes. S'il a raison, presque tous nos outils statistiques sont obsolètes... 
+moindres carrés, analyse spectrale, solutions réalisables par maximum de vraisemblance, 
+toute notre théorie des échantillons établie, fonctions de distribution fermées.  Presque  
+sans exception, les travaux économétriques passés n’ont aucun sens. »66 Pour éviter  
+de tomber dans cet abîme intellectuel, la profession d'économiste 
+gardait les yeux tournés dans l'autre sens, d'autant plus que les mathématiques de  
+les distributions normales généraient des percées étonnantes. En 1973 un 
+Un trio d'économistes a produit une méthode révolutionnaire pour évaluer les options, 
+et une nouvelle industrie financière passionnante est née. Les objections de Mandelbrot
+ont été balayés. « La distribution normale est une bonne approximation », affirmait désormais Fama.67 
+Le krach de 1987 a contraint la profession économique à réexaminer cette idée. 
+affirmation. En termes de distribution de probabilité normale, une chute du 
+la taille des contrats à terme du S&P 500 le 19 octobre avait une probabilité de un sur 10 160, c'est-à-dire un « 1 » suivi de 160 zéros. Pour mettre ça 
+probabilité en perspective, cela signifiait qu'un événement tel que l'accident 
+ne devrait pas se produire même si le marché boursier restait ouvert 
+pendant vingt milliards d'années, la limite supérieure de la durée prévue de l'ère  
+univers, voire s'il devait être rouvert pour de nouvelles sessions de vingt 
+milliards d'années après chacun de vingt big bangs successifs. Mandelbrot, 
+qui avait abandonné l'économie financière après l'abandon au début 
+années 1970, revient sur le sujet avec vengeance. Sa pensée à la Soros 
+
+sur la « théorie du chaos », qui soulignait que de petites informations   
+pourrait générer des mouvements de prix importants en raison de boucles de rétroaction complexes,  
+a acquis un culte parmi les gestionnaires de fonds. 
+En plus de remettre en question le fondement statistique de la pensée des économistes financiers, le Lundi Noir a forcé à reconsidérer leurs hypothèses institutionnelles. La théorie du marché efficace supposait que les investisseurs avaient toujours 
+les moyens d'agir : s'ils savaient qu'une action IBM vaut 90 dollars plutôt 
+que le prix en vigueur de 100 $, ils le vendraient à découvert jusqu'à ce que le poids 
+de leurs échanges ont fait baisser le prix de 10 $.  Ceci en supposant loin de  
+les frictions institutionnelles ont impliqué un certain nombre de sauts héroïques. Il fallait présumer que les spéculateurs avertis pourraient trouver suffisamment d'actions IBM 
+emprunter pour pouvoir les revendre à découvert. Et tu as dû passer sous silence 
+le fait que, dans la vraie vie, la « connaissance » qu'IBM valait 90 $ 
+être moins que certain. La spéculation comportait toujours des risques, et il n'y avait que 
+autant de risques que les spéculateurs pourraient assumer. Ils ne pourraient pas nécessairement 
+on peut compter sur eux pour amener les prix à leur niveau efficace. 
+Avant le krach de 1987, ces arguties semblaient insignifiantes. Être sûr, 
+la grande masse des investisseurs ordinaires pourrait manquer de moyens et de confiance 
+d'agir, mais la théorie du marché efficient plaçait ses espoirs dans l'exceptionnelle  
+minorité. Il suffirait d’une petite poignée d’investisseurs disposant d’informations et de capitaux pour se jeter sur les erreurs d’évaluation et les corriger.68 Mais Black 
+Lundi a démontré que les investisseurs avertis ne parviendraient pas toujours à corriger les prix. Dans le chaos de l’effondrement du marché, les courtiers 
+les lignes téléphoniques étaient saturées d'appels de vendeurs paniqués ;  c'était difficile  
+pour passer une commande. Tout investisseur à effet de levier craignait que son 
+les lignes de crédit pourraient être annulées ; L’accès à l’emprunt, supposé simple dans les modèles de marché efficace, était en réalité incertain.  Et plus  
+important, le simple poids de la vente rendait trop risqué d’aller à l’encontre des 
+s'orienter. Lorsque le monde entier vend, peu importe que des fonds spéculatifs sophistiqués estiment que les prix ont trop chuté. Acheter, c'est fou. 
+Au minimum, semble-t-il, l’hypothèse d’un marché efficient ne s’est pas produite.  
+s’applique aux moments de crise.  Mais l’accident a également soulevé une autre question :  
+Si les marchés étaient efficaces, pourquoi la bulle boursière a-t-elle gonflé au début ? 
+
+lieu? Là encore, la réponse semble résider en partie dans les obstacles institutionnels 
+auxquels sont confrontés les spéculateurs. Au cours de l'été 1987, les investisseurs pouvaient clairement voir 
+que les actions se vendaient à des multiples de bénéfices d'entreprise plus élevés que  
+ils l’avaient fait historiquement ; mais si le marché était déterminé à les valoriser, alors 
+d’une manière ou d’une autre, il en coûterait de l’argent pour s’y opposer. Les gestionnaires de hedge funds savaient mieux 
+que quiconque qu'il est difficile d'emprunter des actions à découvert et que les quelques 
+les opérateurs qualifiés qui font cela ont des trésors de guerre limités.  À cause de ces  
+réalités institutionnelles, la surévaluation pourrait bien perdurer.  L’hypothèse d’efficacité du marché, selon laquelle de sages spéculateurs poussaient les prix à s’aligner, était, à un moment donné, 
+minimum, exagéré. 
+La troisième attaque contre la théorie du marché efficient après 1987 fut peut-être la 
+ce qui se rapproche le plus de la propre plainte de Soros à ce sujet. Cette ligne d'attaque s'est poursuivie
+le protagoniste au centre des modèles des économistes, la figure impeccablement rationnelle connue sous le nom d’Homo Economicus. Quand les investisseurs pourraient réviser leurs 
+valorisation des entreprises américaines jusqu'à un quart en une seule journée,  
+quelque chose d’autre que l’analyse rationnelle était en jeu ;  homo n'était pas complètement  
+Economicus. Les économistes se sont soudainement montrés ouverts aux idées qui pourraient expliquer 
+l'ampleur de la divergence.  En 1988, Richard Thaler de l'Université  
+de Chicago a commencé à publier des articles réguliers dans le Journal of Economic 
+Des perspectives qui ont souligné des cas dans lesquels des choix humains sont apparus 
+pour violer les attentes des économistes à l’égard des êtres rationnels. À Soros, qui avait 
+obsédé par les limites de la cognition depuis ses années d'étudiant à Londres, 
+c'était une autre victoire. 
+La triple attaque contre la théorie du marché efficient – ​​statistique, institutionnelle, 
+et psychologique – était en quelque sorte une justification pour le hedge fund  
+industrie. Cela a aidé à expliquer comment le trading de blocs de Michael Steinhardt ou 
+Les spéculateurs sur les matières premières d’Helmut Weymar auraient pu si bien réussir, et 
+cela montrait que les praticiens du marché avaient souvent été en avance sur les universitaires.  
+théoriciens. La prise de conscience que l’efficacité du marché est imparfaite est encouragée 
+Une vague de professeurs de finance a lancé leurs propres fonds spéculatifs, ce qui a persuadé des fonds de dotation sophistiqués d’injecter de l’argent dans leurs coffres, déclenchant ainsi la croissance vertigineuse du secteur après 1987. Mais il y avait un problème plus sombre. 
+côté de cette révolution des idées. Si les marchés n'étaient pas toujours efficaces et 
+
+rationnels, leurs effets sur la société pourraient également être pernicieux : boom-bust  
+Ces séquences pourraient fausser et déstabiliser l’économie, nuisant ainsi aux activités ordinaires. 
+travailleurs et ménages.  Et si les marchés pouvaient être des démons, les hedge funds à négociation rapide doivent-ils être des démons sous stéroïdes ? Ce soupçon, cependant 
+des hedge funds exagérés et hantés à plusieurs reprises alors qu'ils entraient dans leur 
+époque d’expansion.
+
+chapter 5
+
+
+
