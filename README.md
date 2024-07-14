@@ -374,3 +374,79 @@ L'investisseur s'en sort également bien : si l'indice augmente de 20 pour cent,
 augmenter de seulement 10 pour cent parce qu'il a choisi avec succès des entreprises qui 
 fonctionnent moins bien que la moyenne. La performance des deux investisseurs sera 
 ressemble à ca
+
+
+voir graphe---------------------------------
+
+
+Jones a souligné que la vélocité d'une action ne déterminait pas si
+c'était un bon investissement. On pourrait s'attendre à ce qu'un titre à évolution lente fasse l'affaire
+Bien; on pourrait s’attendre à ce qu’un système volatil ait de mauvais résultats. Mais pour comprendre un
+effet de l’action sur un portefeuille, la taille d’un avoir a dû être ajustée en fonction
+sa volatilité.
+L’innovation suivante de Jones fut de faire la distinction entre l’argent que son
+fonds constitué grâce à la sélection de titres et l'argent qu'il a généré grâce à
+son exposition au marché. Des années plus tard, cette distinction est devenue courante.
+lieu : Les investisseurs ont qualifié les rendements de la sélection de titres axés sur les compétences d'« alpha » et de pas-
+l’exposition au marché est « bêta ».33 Mais Jones a suivi les différentes sources de
+ses bénéfices dès le départ, révélant la facilité avec les statistiques qu'il avait perfectionnées
+au milieu des tensions industrielles d’Akron. Chaque soir, parfois avec l'aide
+de ses enfants, il consultait les cours de clôture de ses actions dans le
+World Telegraph ou the Sun et notez-les au crayon dans un cuir écorné
+livre.34 Ensuite, il construirait des chaînes de raisonnement comme celle-ci :35
+Nos actions longues, d'une valeur de 130 000 $, auraient dû augmenter de 1 300 $ pour conserver
+rythme avec la hausse de 1% du marché. Mais ils ont en réalité augmenté de 2 500 $,
+et la différence, attribuable à une bonne sélection de titres, est de 1 200 $ ou 1,2 %
+sur les 100 000 $ de capitaux propres de notre fonds.
+2 8 PLUS D'ARGENT QUE DIEU
+Nos actions courtes, d'une valeur de 70 000 $, auraient dû augmenter également de 1%,
+ce qui nous aurait montré une perte de 700 $. Mais la perte réelle n'était que
+400 $, et la différence, attribuable à une bonne sélection de titres à découvert, est un
+gain de 300 $ ou 0,3 %.
+Étant long net d'un montant de 60 000 $, le marché a augmenté de 1 %
+nous a aidés de 1 % de 60 000 $, ou 600 $, ou 0,6 %.
+Notre gain total s'élève à 2 100 $, soit 2,1 % des capitaux propres. 1,5 pourcentage
+Les points de rendement étaient attribuables à la sélection de titres. Le reste
+0,6 point de pourcentage provient de l'exposition au marché.
+Les calculs de Jones étaient impressionnants à deux niveaux. Dans le pré-ordinateur
+âge, comprendre la volatilité des actions était une affaire laborieuse, et Jones
+et son petit personnel a effectué ces mesures pendant environ deux mille
+entreprises de sable à intervalles de deux ans. Mais plus que la patience de Jones, c’était
+la sophistication conceptuelle qui se démarque. D'une manière approximative,
+ses techniques anticipaient les percées du monde universitaire financier de
+les années 1950 et 1960.
+EN 1 9 5 2 , TROIS ANS APRÈS LE LANCEMENT DE R J O N E S H A D
+fonds, la théorie moderne du portefeuille est née avec la publication d'un court
+article intitulé « Sélection du portefeuille ». L'auteur était âgé de vingt-cinq ans
+étudiant diplômé nommé Harry Markowitz, et ses principales idées étaient
+double : l’art de l’investissement ne consiste pas simplement à maximiser le rendement, mais à
+maximiser le rendement ajusté au risque et le niveau de risque qu'un
+que le consommateur prend dépend non seulement des actions qu'il possède, mais aussi des corrélations
+parmi eux. La méthode d’investissement de Jones anticipait grossièrement ces points.
+En prêtant attention à la vélocité de ses actions, Jones était effectivement
+contrôler les risques, comme le préconisait Markowitz. De plus, en équilibrant les
+volatilité de ses positions longues et courtes, Jones anticipait Marko-
+L’idée de Witz selon laquelle le risque d’un portefeuille dépend de la relation entre
+ses composants.36
+L’approche de Jones était plus pratique que celle de Markowitz. Pendant des années
+2 9 GRAND PAPA
+le journal de 1952 a été ignoré à Wall Street parce qu'il était impossible
+à mettre en œuvre : Établir les corrélations entre mille titres
+a nécessité près d'un demi-million de calculs et l'ordinateur requis
+l'électricité n'était pas encore disponible. Au milieu des années 1950, Markowitz tenta de
+estimer les corrélations pour seulement vingt-cinq actions, mais il a constaté que même
+cela exigeait plus de mémoire informatique que le département d'économie de Yale.
+ment pourrait subvenir à ses besoins. Et donc c'est tombé à un autre futur lauréat du prix Nobel-
+mangé, William Sharpe, pour développer une variation qui rendrait le style de Markowitz
+travail utile : dans un article intitulé « Un modèle simplifié pour l'analyse de portefeuille »
+ma sœur », Sharpe a remplacé l’injonction désespérée de calculer les multiples
+relations entre les actions avec l’idée plus simple de calculer un seul
+corrélation entre chaque action et l'indice boursier. C'était précisément
+ce pour quoi les calculs de vitesse de Jones ont été conçus. Au moment où Sharpe
+a publié son article en 1963, Jones avait mis en œuvre ses conseils depuis
+plus d'une décennie.
+Jones a également anticipé les travaux de James Tobin, un autre prix Nobel.
+père gagnant de la théorie moderne du portefeuille. En 1958, Tobin proposa ce que
+est devenu connu sous le nom de théorème de séparation, selon lequel le
+le choix des actions doit être distinct de la question de son appétit pour le risque.
+Dans les années 1950, la plupart des conseillers en investissement supposaient que certains types de
