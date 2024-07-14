@@ -563,3 +563,98 @@ a attribué à chaque manager interne une part du capital des associés,
 a réduit l'exposition au marché souhaitée et l'a laissé investir l'argent. À 
 à la fin de chaque année, les managers les plus performants étaient aussi les meilleurs 
 récompensé
+
+
+
+
+You  could  see  the  results  in  the  way  the  Jones  men  operated.  In  the  
+Wall Street of the 1950s and 1960s, information did not reach everyone 
+at  once:  There  were  no  blast  e-mails  from  brokers,  no  instant  analysis  
+from cable TV squawkers. In this environment, the investment team with 
+the most hustle could beat out sleepier rivals; and the Jones men hustled 
+hardest.  The  model  portfolio  managers  rushed  to  call  in  hot  ideas,  and  
+the  in-house  segment  managers  worked  the  phones,  scrambling  for  the  
+gossip and insights that would put them ahead of their competitors. Even 
+in the 1960s, when Wall Street finally shrugged off its postcrash stupor, 
+it was surprising how easily sheer diligence could set a man apart. Alan 
+Dresher, one of the Jones stock pickers, had the idea of going over to the 
+Securities and Exchange Commission offices to read company filings the 
+moment they came out. The extraordinary thing was that he was all alone. 
+The rest of the Street was waiting for the filings to arrive in a bundle from 
+the post offi ce. 
+The linking of compensation to results was the key to Jones’s formula. 
+When a broker passed a stock tip to a normal mutual fund, there was no 
+certain  connection  between  the  quality  of  the  tip  and  what  the  broker  
+would be paid for it. For one thing, the mutual funds lacked Jones’s sys-
+tem  for  tracking  how  stock  recommendations  turned  out.  For  another,  
+mutual-fund  companies  paid  out  thousands  of  dollars  to  salesmen  who  
+brought in investors’ capital, leaving little money over to reward excellent 
+research.  Jones,  on  the  other  hand,  was  meticulous  in  paying  for  good  
+ 
+research  ideas,  and  he  paid  handsomely.49  A  young  broker  could  see  his  
+salary  double  if  the  recommendations  in  his  model  portfolio  generated  
+profi ts.50 Meanwhile the funds’ performance fees were divvied up among 
+Jones’s  in-house  money  managers  according  to  whose  segment  did  best,  
+and Jones devised two further ways of sharpening incentives. Each year 
+successful segment managers were given extra capital to manage, which 
+increased  their  chances  of  generating  profits  in  the  coming  year  and  so  
+earning  a  large  bonus;  unsuccessful  managers  received  less  capital  to  
+play  with.  And  in  another  innovation  that  anticipated  the  hedge  funds  
+of  later  times,  Jones  required  his  partners  to  have  their  own  capital  in  
+the funds, so that their wealth as well as their income was riding on their 
+performance.51 
+Without realizing the significance of what he was doing, Jones had cre-
+ated the competitive multimanager structure that has been used to great 
+effect by later generations of hedge funds. As we shall see in chapter three, 
+the  same  structure  was  reinvented  in  the  1970s  by  a  firm  in  Princeton,  
+New  Jersey,  and  later  dozens  of  hedge  funds  came  to  use  it.  But  in  the  
+1950s and 1960s, the combination of Darwinist individualism and top-
+down risk control was almost unique to Jones, and this gave him a power-
+ful advantage. The market may be efficient, in the sense that information 
+is reflected in prices to the extent that existing institutional arrangements 
+allow. But Jones blew up those institutional arrangements, scrapping staid 
+committee meetings and paying people to perform. Thus did he create the 
+edge that brought in serious money. 
+AT   T H E   S TA R T   O F   1 9 6 4 ,   A L F R E D   J O N E S   I N V I T E D   A   YO U N G   
+analyst to lunch at his Manhattan club. Now in his sixties, he had achieved 
+the  material  comfort  he  had  sought  fifteen  years  earlier;  his  family  had  
+graduated from its Dodge station wagon to a Citroën DS and finally to a 
+monstrous Mercedes. Jones peered at the young analyst and asked, “When 
+you  go  to  pee  in  a  restaurant  urinal,  do  you  wash  your  hands  before  or  
+after you pee?” 
+The analyst was a bit surprised. “Afterwards, sir,” he ventured. 
+ 
+“That’s  the  wrong  answer,”  Jones  retorted.  “You’re  a  conventional  
+thinker and not rational.”52 
+Jones was trying to be funny. He was recycling a version of a joke that 
+was  doing  the  rounds,  but  he  had  mangled  it  hopelessly.  The  analyst,  a  
+future  Wall  Street  grandee  named  Barton  Biggs,  took  instantly  against  
+Jones, and although he accepted the opportunity to run a model portfolio 
+for his fund, he never grew to like him. Jones seemed aloof, conceited, and 
+ignorant about stocks. He was reaping the fruits of young analysts’ hard 
+work while himself appearing in the offi ce sporadically. 
+Perhaps  not  surprisingly,  the  man  who  had  spent  his  early  adult-
+hood  among  clandestine  anti-Hitler  activists  never  had  much  passion  
+for  investing.  He  disdained  the  monomaniacal  market  types  with  no  
+interests  beyond  finance:  “Too  many  men  don’t  want  to  do  something   
+after  they  make  money.  They  just  go  on  and  make  a  lot  more  money,”   
+he complained to one interviewer.53 Jones cultivated literary infatuations: 
+He  was  enthralled  by  the  theory  that  Edward  de  Vere,  the  seventeenth  
+Earl of Oxford, was the true author of Shakespeare’s plays, and he named 
+his poodle Edward. He carved a tunnel through the weeping willows at 
+his country house and nursed his lawn tennis court as though it were a 
+sickly infant. He founded a philanthropy devoted to what he called “the 
+humiliated poor” and set to work on a book that he intended as a sequel to 
+Michael Harrington’s famous poverty study, The Other America. Dorothy 
+Parker was now too drunk to be invited over much, but Alfred and Mary 
+entertained a cosmopolitan cast of intellectuals and United Nations dip-
+lomats, and dinner conversation was less likely to be about finance than 
+about Russian hegemony in Yugoslavia.54 It was not surprising that com-
+mitted Wall Streeters resented him. 
+Soon  after  Jones’s  lunch  with  Biggs,  the  resentments  burst  out  into  
+the  open.  One  of  Jones’s  in-house  money  managers  left  to  set  up  a  rival  
+hedged fund called City Associates.55 From the point of view of the defec-
+tor,  the  choice  was  rational: The  hedged  concept  was  easy  to  copy,  and  
+there was no need to share the loot with a dilettante overseer. Jones had 
+his  lawyers  harass  his  departing  partner  but  the  old  man  took  the  blow  
+in  stride;  and  at  the  end  of  1964  he  spent  his  Christmas  vacation  on  a  
