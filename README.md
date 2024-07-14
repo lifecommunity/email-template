@@ -1044,3 +1044,245 @@ et a marché dans les années 1980
 
 
 chapitre 3
+
+en valeur, le coton et le caoutchouc ont perdu 40 pour cent et le cacao a chuté de plus de 25 pour cent.
+cent.36 Lorsque l’administration Carter a tenté de stimuler l’économie, 
+la poussée de l'inflation a fait chuter le dollar d'un tiers par rapport au  
+le yen et le deutsche mark, et les grands mouvements ont donné aux surfeurs le nouveau  
+les marchés à terme de devises offrent de nombreuses opportunités.37 
+Au début de 1975, Marcus aperçut une opportunité qui anticipait la victoire.
+contre les taux de change fixes pour lesquels les hedge funds sont devenus notoires plus tard.
+ous. Dans sa recherche de politiques gouvernementales stupides qui violaient les bonnes conditions du marché 
+En un sens, il s’est concentré sur une intervention aussi séduisante que le contrôle des prix de Nixon :  
+L'Arabie Saoudite avait rattaché sa monnaie au dollar. Il n'a pas fallu un génie 
+pour remarquer que la cheville était en difficulté. Comme les revenus d’exportation de l’Arabie Saoudite 
+a gonflé avec le prix du pétrole, son économie a été inondée d'argent, 
+créant une pression à la hausse sur le taux de change.  Bien sûr, la réévaluation  
+n’était pas sûr : l’Arabie Saoudite pouvait décider de vivre avec les afflux de capitaux, 
+même s’ils ont alimenté l’inflation.  Mais, suivant la logique de la monnaie  
+spéculateurs qui ont ensuite attaqué les taux de change fixes partout, depuis la Grande-Bretagne.
+En Thaïlande, Marcus a vu que, que la réévaluation ait eu lieu ou non, 
+la dévaluation était inconcevable. Cela a amené à parier sur la monnaie saoudienne 
+un pari à sens unique extrêmement attractif : il ne pouvait y avoir aucune garantie de victoire.
+ning, mais il y avait une quasi-garantie de ne pas perdre. Alors Marcus a pris énormément 
+positions dans le riyal, s'appuyant sur l'argent emprunté et  
+dormir parfaitement et profondément.  En mars 1975, l'Arabie Saoudite abandonna son  
+lien dollar et réévalué. Marcus a commis un autre meurtre.38 
+À LA FIN DES ANNÉES 1970, LE SUCCÈS DU C O M M O D I T - 
+ies Corporation était devenue prodigieuse.  Le fiasco de la brûlure du maïs était un  
+mémoire fanée; le surf tendance, à la manière de Michael Marcus, rapportait 
+de 50 pour cent et plus pour de nombreux commerçants de l’entreprise. Le capital de la société 
+est passé de moins d'un million de dollars à son point le plus bas à quelque 30 millions de dollars ; le 
+La ferme a acquis une aile supplémentaire et un nouveau bâtiment a été mis en service. 
+Weymar a embauché de nouveaux commerçants, et chaque commerçant a embauché des chercheurs pour suivre 
+des graphiques ; le nouveau personnel administratif est arrivé à un rythme que les anciens ont trouvé 
+absurde, d’autant plus que les frais généraux provenaient de leurs bénéfices commerciaux. Mais 
+
+les bénéfices étaient suffisamment importants pour dissimuler le problème. Rien qu'en 1980, 
+ils sont arrivés à la somme astronomique de 42 millions de dollars, de sorte que même après avoir dépensé 
+13 millions de dollars de primes à 140 employés, la tranquille entreprise de Weymar a surpassé ses gains 
+cinquante-huit des sociétés Fortune 500.  Weymar a fait voler ses employés  
+et leurs familles en première classe pour une retraite d'entreprise aux Bermudes. Le commerce-
+Les gens ont détourné l'occasion pour fustiger Weymar pour ses manières de dépenser librement, 
+mais ils ont plus que tout reconnu que Commodities Corporation était un  
+phénomène.39 
+Le phénomène est avant tout un triomphe de la flexibilité.  Dans 
+dépassant l'analyse économétrique pour se concentrer sur les tendances, Weymar avait  
+fait preuve d’un pragmatisme qui revient à plusieurs reprises dans l’histoire de  
+les hedge funds – et même dans l’histoire des affaires en général.  L'innovation est  
+souvent attribué aux grandes théories fomentées dans les universités et les parcs de recherche : 
+L’école d’ingénieurs de Stanford se situe ainsi au centre du développement de la Silicon Valley. 
+créativité, et les National Institutes of Health soutiennent l’innovation dans  
+l'industrie pharmaceutique.  Mais la vérité est que l'innovation est souvent  dépend moins de grandes percées académiques que d’humbles essais et 
+erreur - sur la volonté de suivre ce qui fonctionne, et sans parler de la théorie 
+cela peut le sous-tendre. Même en finance, domaine dans lequel les résultats de la recherche peuvent 
+être traduites directement en plans d'affaires, les essais et erreurs s'avèrent essentiels. 
+A. W. Jones a commencé en espérant que le suivi des graphiques lui permettrait de 
+appelons le vaste marché ; cela s'est avéré être une impasse, mais il a réussi 
+en improvisant un nouveau système d'incitations pour les sélectionneurs de titres.  Steinhardt,  
+Très bien, et Berkowitz a débuté comme analyste actions. Mais leur succès est dû 
+beaucoup pour bloquer les échanges commerciaux et une concentration excentrique sur la politique monétaire. 
+Tout comme la troïka de Michael Steinhardt, Commodities Corporation
+issu d’une approche adaptée aux années 1970. Les marchés financiers sont mécanisés.
+nismes pour faire correspondre les personnes qui veulent éviter les risques avec des personnes qui sont payées 
+pour l'assumer : Il y a un transfert du demandeur d'assurance au vendeur d'assurance. 
+Dans les années 1960, peu de gens recherchaient une assurance contre le prix des matières premières. 
+fluctuations.  Le gouvernement fixe des prix minimum pour les produits agricoles,  
+tandis que les excédents empêchaient les prix de monter ; traders au Chicago Board 
+du Commerce passait ses heures sur les marches de la fosse à soja en lisant 
+journaux. Mais dans les années 1970, inflationnistes, la nouvelle volatilité des prix alimentaires 
+
+créé une ruée vers l’assurance : les entreprises alimentaires ont utilisé le marché à terme pour 
+couvrir le risque de prix élevés ;  les producteurs de denrées alimentaires ont utilisé le marché à terme pour  
+couvrir le risque de prix bas.40 De même, la nouvelle volatilité des taux de change 
+créé une ruée vers la couverture de change ; les entreprises multinationales se sont réveillées 
+fait que la hausse ou la baisse du dollar pourrait bouleverser leur performance. Pendant le 
+Dans la première moitié des années 1970, le chiffre d'affaires du Chicago Board of Trade a augmenté rapidement.
+paresseusement. Les commerçants des stands n'avaient pas de temps à perdre en journaux. 
+Cette ruée de demandeurs d'assurance sur le marché ne pouvait que profiter au 
+les vendeurs d’assurances, c’est-à-dire les spéculateurs. Les agriculteurs et la nourriture 
+les entreprises achetaient et vendaient des contrats à terme parce qu'elles avaient besoin de se débarrasser 
+le risque, non pas parce qu’ils avaient une vision sophistiquée de l’orientation des prix ; 
+les spéculateurs qui partageaient un tel point de vue avaient forcément le dessus 
+en faisant du commerce avec eux.  De plus, les spéculateurs ont gagné particulièrement bien  
+bénéfices parce qu’ils étaient confrontés à relativement peu de concurrence.  Les échanges  
+imposé des limites au nombre de contrats qu'un spéculateur pouvait acheter, 
+limiter l’offre d’« assurance » et augmenter artificiellement sa valeur. Com-
+Modities Corporation a empoché les primes d'assurance plus élevées créées par 
+cette rareté artificielle, puis a également trouvé un autre moyen de gagner. Il a eu 
+contourner les restrictions des bourses en organisant des transactions hors bourse avec 
+grossistes.41 
+La forte hausse de la recherche d’assurance explique en partie le succès de Com-
+société de modifications. Mais le facteur de loin le plus important était la capacité de l’entreprise à 
+conversion en suivi de tendance.  En développant son Informatique Technique  
+Système et démontrant à quel point les marcheurs aléatoires avaient tort, Frank 
+Vannerson a donné à Commodities Corporation la confiance nécessaire pour embaucher une tendance  
+des adeptes tels que Michael Marcus et de se tourner vers sa combinaison de divertissement-
+analyses fondamentales et graphiques en une sorte de credo d'entreprise.42 Des années plus tard, 
+le monde universitaire de la finance a rattrapé la découverte de Vannerson. En 1986, un journal 
+dans le prestigieux Journal of Finance a constaté que la tendance se poursuit dans le  
+les marchés des changes pourraient réaliser des bénéfices considérables et, en 1988, une autre étude  
+Il en a été de même pour les matières premières et les contrats à terme sur devises43. 
+Il y avait 
+une symétrie amusante pour certaines de ces recherches.  Scott Irwin, l'un des  
+auteurs de l’article de 1988, avait été incité à commencer son enquête.
+tion par une rencontre avec Dennis Dunn, dont le cabinet, Dunn & Hargitt, 
+
+avait fourni à Vannerson les données nécessaires à la construction de l'ordinateur technique 
+Système. Examiner la même série de prix sur laquelle Vannerson avait travaillé 
+Près de deux décennies auparavant, Irwin était arrivé à la même conclusion44. 
+EN 1 9 7 7 M I C A E L MARC U S PLACE D A N A D I N T E F I N A N -
+Presse spéciale pour un assistant trader. Un personnage improbable a répondu 
+qui avait abandonné un programme de doctorat à Harvard et travaillait maintenant-
+à temps partiel comme chauffeur de taxi.  Lorsque le candidat s'est présenté, il  
+C'était le coup de foudre. Marcus décrocha le téléphone et appela Weymar. 
+« Helmut, dit-il avec empressement, j'ai dans mon bureau le prochain président de la Commission.
+modities Corp. »45 
+Le candidat était Bruce Kovner, et Weymar comprenait pourquoi Marcus 
+était enthousiaste.  Le jeune homme était grand, imposant, avec une grosse tête  
+surmonté d'une épaisse touffe de cheveux;  il respirait la confiance et l'aisance naturelle,  
+et son éventail intellectuel était frappant.  Il faisait partie d'un cercle de  
+des politologues de Harvard, dont James Q. Wilson et Daniel 
+Patrick Moynihan ;  il s'était consacré pendant un certain temps au travail à plein temps  
+étude de la musique; il avait travaillé sur un certain nombre de campagnes politiques ; et 
+il avait rédigé des articles indépendants dans le magazine Commentary sur les sous-
+des projets allant de la musique aux objectifs de croissance économique. Le trading était juste 
+une autre chose qu'il avait apprise en cours de route. Incité par une conversation
+avec un ami, il avait étudié les marchés à terme, emprunté 3 000 $ 
+contre une MasterCard et l'a transformé en 22 000 $. Marcus et Weymar 
+a testé le futur assistant commercial en mentionnant quelques problèmes financiers. 
+textes, mais Kovner avait lu plus qu'eux, à commencer par des ouvrages historiques. 
+des classiques tels que Extraordinary Popular Delusions de Charles Mackay et le 
+Folie des foules et s'étendant aux newsletters contemporaines. «Je vraiment 
+valorisait la richesse intellectuelle, et Bruce était riche du kazoo », Weymar  
+se souvient.46 Kovner a été embauché en peu de temps, non pas comme assistant mais comme  
+commerçant.47 
+La rencontre de Kovner avec Marcus et Weymar a lancé l'une des plus 
+carrières illustres dans l’histoire des hedge funds.  Au cours de la décennie suivante, Kovner  
+accumulé des gains d’environ 80 pour cent par an en moyenne ; il a lancé le sien 
+
+fonds spéculatif, Caxton Corporation ; et il est apparu comme une figure colorée dans 
+les arts et la politique.  Il est devenu le parrain du mouvement conservateur.
+ment à travers sa présidence de l’American Enterprise Institute et 
+son soutien au New York Sun. Il a présidé la Juilliard School of Music 
+et a parrainé un artiste qui a produit une édition illustrée de la Bible, 
+le Pennyroyal Caxton, complété par une gravure de Kovner dans le  
+image du roi Salomon. Quand Kovner avait besoin d'une garçonnière après 
+un divorce, il a converti le Centre international de photographie de Manhattan 
+dans une résidence privée. Le manoir possède un coffre-fort pour la collection d’objets de Kovner. 
+des livres rares et un bureau qui sert également d'abri anti-bombes à l'épreuve des radiations. 
+Michael Marcus, qui avait étudié la psychologie, a remarqué quelque chose 
+à propos de Kovner dès le début : il avait une force physique et psychologique qui 
+le distingue de ses collègues. Kovner savait comment abandonner les distractions ;
+il ne réfléchissait pas trop à son métier et n'avait aucun problème à dormir. Autres commerçants 
+ils pourraient gagner de l’argent plus rapidement, mais ils le perdraient aussi plus rapidement ; Kovner était 
+cohérent, et il avait une sorte de tempérament nerveux. Kovner une fois 
+a pris un coup sur une position argent, subissant le genre de perte qui aurait laissé 
+la plupart des commerçants vomissent dans la salle de bain. Il s'est présenté le même jour à un 
+réunion administrative comme si de rien n’était.48 
+Contrairement à de nombreux traders, Kovner combinait un sens des marchés et une organisation.
+talent nationalisation. Il a embauché plusieurs assistants pour suivre les numéros et composer 
+graphiques, sans jamais payer aucun d’entre eux plus que ce qui était absolument nécessaire. Il 
+pouvait tirer le meilleur des gens ordinaires : il employa un ex-bibliothécaire pour 
+surveiller la relation entre les taux d’intérêt et les contrats à terme sur l’or ;  quand-
+Chaque fois que la relation montrait un incident inhabituel, le bibliothécaire avait des instructions 
+parier sur le retour à la normale, une formule qui a généré de beaux profits. 
+Pendant ce temps, Kovner était habile à obtenir des concessions financières  
+Weymar, soulevant fréquemment la colère de ses collègues. Plutôt que de payer 
+pour ses assistants, avec ses propres bénéfices, Kovner obtenait parfois 
+le budget central de l’entreprise à cracher ; plutôt que de mettre de côté les siens 
+allocation de capital pour échanger sur leurs idées, Kovner persuaderait Weymar 
+pour leur allouer de l’argent supplémentaire.49 Selon le jugement d’Irwin Rosenblum, le 
+directeur financier, Bruce Kovner a amassé une plus grande fortune chez Com-
+modities Corporation que quiconque dans l'entreprise.
+
+Kovner a combiné l'analyse fondamentale avec l'attention portée aux graphiques,  
+confirmant l'abandon de la recherche basée sur des modèles avec laquelle  
+Weymar avait commencé.51 Comme pour Michael Marcus, les palmarès parfois  
+est venu en premier : en effet, Kovner a soutenu un jour que l’opportunité la plus rentable
+Des problèmes surviennent lorsque vous ne disposez d’aucune information fondamentale.52 Si un marché est 
+se comportant normalement, tic-tac de haut en bas dans une bande étroite, un soudain 
+une évasion en l'absence de toute raison perceptible est une opportunité de  
+sauter : cela signifie qu'un initié quelque part connaît des informations selon lesquelles le 
+le marché n'a pas encore compris, et si vous suivez cet initié, vous entrerez 
+là-bas avant que l'information ne devienne publique. Une fois Kovner et Marcus 
+pariaient contre le dollar lorsque celui-ci s’est inexplicablement renforcé. Supposons-
+Alors que les initiés avaient eu vent d'une nouvelle importante, les traders ont immédiatement
+immédiatement renfloué, et ce week-end-là, le président Carter a annoncé un dollar 
+programme de soutien. Si le duo avait attendu l'annonce officielle, si 
+ils avaient négocié sur les données fondamentales de la manière que Weymar cherchait 
+faire au début – ils auraient été anéantis.53 
+En 1981, Kovner et un associé, Roy Lennox, ont mis au point une stratégie qui  
+est devenu plus tard un incontournable des hedge funds. Ils recherchaient des devises qui coûtaient un 
+beaucoup moins dans le futur que dans le présent et je les ai achetés à bas prix 
+taux à terme.  La plupart des commerçants pensaient qu’il n’y avait rien à gagner  
+de ce comportement : si le taux à terme était plus bas, c’était parce que le cours actuel
+la rence était susceptible de se déprécier. Mais Kovner et Lennox virent que c'était 
+faux. Un taux à terme faible reflétait généralement des taux d'intérêt élevés : si l'espagnol 
+les banques payaient 7 pour cent d'intérêt aux déposants, la peseta serait  
+valant 7 pour cent de plus sur le marché « spot » immédiat que sur un an 
+à terme – en fait, la décote sur le marché à terme était compensatoire.
+acheteurs pour avoir raté l’occasion de percevoir des intérêts. Loin d'être un signal
+
+that a currency was likely to depreciate, a forward-market discount was a 
+sign  that  a  currency  might  rise,  since  the  high  interest  rate  was  likely  to  
+drive inflation down and suck capital into the country. For the next decade 
+or so, Kovner and Lennox bought currency forwards that were trading at 
+a big discount and sold currency forwards that were trading at small ones. 
+This “carry trade” raked in glorious profits until rivals caught on to it.54 
+Kovner’s success forms a kind of epilogue to the heyday of Commodities  Corporation.  As  word  of  the  fi rm’s  profits  reached  sharp  ears  on  
+Wall Street, Weymar found himself facing a challenge. New York brokers 
+approached his top traders, seeking to place their clients’ capital directly 
+with  the  stars;  they  were  effectively  pressing  the  likes  of  Marcus  and  
+Kovner to begin hedge funds within the structure of Weymar’s company. 
+Weymar  at  first  resisted,  but  the  traders  had  the  upper  hand;  the  boss  
+had  loaded  up  Commodities  Corporation  with  such  vast  administrative  
+overhead that traders were already tempted to go independent, and now 
+Wall Street was offering them an alternative source of trading funds—plus 
+a fat fee for accepting them.55 After some internal argument, the traders 
+got their way, and pretty soon Kovner was managing millions of dollars of 
+Wall Street cash. His army of trading assistants expanded to the point that 
+he was running a state within a state. By the time Kovner broke off to start 
+Caxton Corporation in 1983, he was already an independent hedge-fund 
+mogul in everything but name. He was secretive, leveraged, and enviably 
+successful. 
+Meanwhile,  a  pair  of  younger  futures  traders  was  rising  in  his  wake.  
+Paul Tudor Jones and Louis Bacon, whom we will encounter later in this 
+story, both received seed capital from Commodities Corporation; and in 
+the  early  1980s  the  two  would  arrive  by  helicopter  from  Manhattan  to  
+attend traders’ dinners in Princeton. Jones and Bacon both learned from 
+Commodities  Corporation,  sharing  ideas  on  trends  and  chart  patterns  
+and  adopting  its  risk-control  procedures;  Bacon  eventually  hired  Elaine  
+Crocker, a senior administrative officer at Commodities Corporation, to 
+be  the  president  of  his  hedge  fund,  Moore  Capital.  But  Bacon  was  too  
+independent  a  figure  to  fit  into  Weymar’s  company,  and  Jones  turned  
+down a job offer; he was happy to take seed money from Commodities 
+Corporation, but he did not want to join it.56 The difficulty of bringing in 
+star performers combined with Weymar’s big spending to create a crisis at 
+the firm; and in 1984 an internal revolt forced Weymar to promise lower 
+overhead and a return to “the simple life.”57 Though it soldiered on after 
+that, Commodities Corporation never recaptured its old verve. The center 
+of gravity shifted: from Weymar to a younger set, from the idyll in Princ-
+eton to a new generation of New York hedge funds. 
+
+chapitre 4
