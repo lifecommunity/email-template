@@ -1244,45 +1244,17 @@ valant 7 pour cent de plus sur le marché « spot » immédiat que sur un an
 à terme – en fait, la décote sur le marché à terme était compensatoire.
 acheteurs pour avoir raté l’occasion de percevoir des intérêts. Loin d'être un signal
 
-that a currency was likely to depreciate, a forward-market discount was a 
-sign  that  a  currency  might  rise,  since  the  high  interest  rate  was  likely  to  
-drive inflation down and suck capital into the country. For the next decade 
-or so, Kovner and Lennox bought currency forwards that were trading at 
-a big discount and sold currency forwards that were trading at small ones. 
-This “carry trade” raked in glorious profits until rivals caught on to it.54 
-Kovner’s success forms a kind of epilogue to the heyday of Commodities  Corporation.  As  word  of  the  fi rm’s  profits  reached  sharp  ears  on  
-Wall Street, Weymar found himself facing a challenge. New York brokers 
-approached his top traders, seeking to place their clients’ capital directly 
-with  the  stars;  they  were  effectively  pressing  the  likes  of  Marcus  and  
-Kovner to begin hedge funds within the structure of Weymar’s company. 
-Weymar  at  first  resisted,  but  the  traders  had  the  upper  hand;  the  boss  
-had  loaded  up  Commodities  Corporation  with  such  vast  administrative  
-overhead that traders were already tempted to go independent, and now 
-Wall Street was offering them an alternative source of trading funds—plus 
-a fat fee for accepting them.55 After some internal argument, the traders 
-got their way, and pretty soon Kovner was managing millions of dollars of 
-Wall Street cash. His army of trading assistants expanded to the point that 
-he was running a state within a state. By the time Kovner broke off to start 
-Caxton Corporation in 1983, he was already an independent hedge-fund 
-mogul in everything but name. He was secretive, leveraged, and enviably 
-successful. 
-Meanwhile,  a  pair  of  younger  futures  traders  was  rising  in  his  wake.  
-Paul Tudor Jones and Louis Bacon, whom we will encounter later in this 
-story, both received seed capital from Commodities Corporation; and in 
-the  early  1980s  the  two  would  arrive  by  helicopter  from  Manhattan  to  
-attend traders’ dinners in Princeton. Jones and Bacon both learned from 
-Commodities  Corporation,  sharing  ideas  on  trends  and  chart  patterns  
-and  adopting  its  risk-control  procedures;  Bacon  eventually  hired  Elaine  
-Crocker, a senior administrative officer at Commodities Corporation, to 
-be  the  president  of  his  hedge  fund,  Moore  Capital.  But  Bacon  was  too  
-independent  a  figure  to  fit  into  Weymar’s  company,  and  Jones  turned  
-down a job offer; he was happy to take seed money from Commodities 
-Corporation, but he did not want to join it.56 The difficulty of bringing in 
-star performers combined with Weymar’s big spending to create a crisis at 
-the firm; and in 1984 an internal revolt forced Weymar to promise lower 
-overhead and a return to “the simple life.”57 Though it soldiered on after 
-that, Commodities Corporation never recaptured its old verve. The center 
-of gravity shifted: from Weymar to a younger set, from the idyll in Princ-
-eton to a new generation of New York hedge funds. 
+qu'une monnaie était susceptible de se déprécier, une décote sur le marché à terme était un signe qu'une monnaie pourrait augmenter, puisque le taux d'intérêt élevé était susceptible de se déprécier.
+faire baisser l’inflation et aspirer les capitaux dans le pays. Au cours de la décennie suivante, Kovner et Lennox ont acheté des contrats de change à terme qui se négociaient à un prix très réduit et ont vendu des contrats de change à terme qui se négociaient à un prix faible. Ce « carry trade » a généré des profits glorieux jusqu’à ce que les rivaux s’en emparent.54 Le succès de Kovner constitue une sorte d’épilogue de l’apogée de Commodities Corporation. Alors que la nouvelle des bénéfices de l’entreprise parvenait à des oreilles attentives
+Wall Street, Weymar s’est retrouvé face à un défi. Les courtiers new-yorkais ont approché ses meilleurs traders, cherchant à placer le capital de leurs clients directement auprès des stars ; ils faisaient effectivement pression sur Marcus et
+Kovner va lancer des hedge funds au sein de la structure de la société Weymar. Weymar résista d'abord, mais les commerçants eurent le dessus ; le patron
+avait chargé Commodities Corporation de si vastes tâches administratives
+que les traders étaient déjà tentés de devenir indépendants, et que maintenant Wall Street leur offrait une source alternative de fonds de trading – plus des frais élevés pour les accepter.55 Après quelques disputes internes, les traders ont obtenu gain de cause, et très vite Kovner a réussi à gérer ses transactions. des millions de dollars de liquidités à Wall Street. Son armée d’assistants commerciaux s’est développée au point qu’il dirigeait un État dans l’État. Au moment où Kovner a rompu pour créer Caxton Corporation en 1983, il était déjà un magnat indépendant des hedge funds, sauf le nom. Il était secret, exploité et connu un succès enviable. Pendant ce temps, deux jeunes traders à terme progressaient dans son sillage.
+Paul Tudor Jones et Louis Bacon, que nous rencontrerons plus tard dans cette histoire, ont tous deux reçu un capital d'amorçage de Commodities Corporation ; et au début des années 1980, les deux hommes arrivaient en hélicoptère de Manhattan à
+assister aux dîners des commerçants à Princeton. Jones et Bacon ont tous deux appris de Commodities Corporation, partageant des idées sur les tendances et les modèles graphiques.
+et adopter ses procédures de contrôle des risques ; Bacon a finalement embauché Elaine
+Crocker, un cadre administratif supérieur chez Commodities Corporation, sera président de son fonds spéculatif, Moore Capital. Mais Bacon l'était aussi
+indépendant une personnalité à intégrer dans l’entreprise de Weymar, et Jones devint
+déposer une offre d'emploi; il était heureux d’accepter l’argent de démarrage de Commodities Corporation, mais il ne voulait pas la rejoindre.56 La difficulté de recruter des artistes vedettes combinée aux dépenses importantes de Weymar pour créer une crise au sein de l’entreprise ; et en 1984, une révolte interne a contraint Weymar à promettre une réduction des frais généraux et un retour à « la vie simple ».57 Bien qu’elle ait persévéré par la suite, Commodities Corporation n’a jamais retrouvé son ancienne verve. Le centre de gravité s’est déplacé : de Weymar vers une population plus jeune, de l’idylle de Princeton vers une nouvelle génération de hedge funds new-yorkais.
 
 chapitre 4
