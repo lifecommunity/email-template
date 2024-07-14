@@ -449,4 +449,117 @@ Jones a également anticipé les travaux de James Tobin, un autre prix Nobel.
 père gagnant de la théorie moderne du portefeuille. En 1958, Tobin proposa ce que
 est devenu connu sous le nom de théorème de séparation, selon lequel le
 le choix des actions doit être distinct de la question de son appétit pour le risque.
-Dans les années 1950, la plupart des conseillers en investissement supposaient que certains types de
+Dans les années 1950, la plupart des conseillers en investissement supposaient que certains types de ------- l'avenir du secteur des hedge funds.  Ses activités clandestines en Europe  
+lui avait appris à rester sous le radar, et il avait plusieurs raisons 
+d’aborder la finance de la même façon38. Pour commencer, Jones voulait 
+protéger ses méthodes d'investissement des concurrents : les courtiers qui ont visité le 
+Les bureaux d'A. W. Jones sur Broad Street ont été vigoureusement contre-interrogés au sujet de 
+les actions qu'ils vantaient, mais ils ont quitté les lieux sans aucune idée de ce que 
+Les hommes de Jones réfléchissaient. De même, Jones voulait éviter d’attirer l’attention.
+aux niches fiscales imaginées pour lui par Richard Valentine, avocat 
+au cabinet Seward & Kissel. Valentine était un génie créatif capable 
+être distrait d'une manière caricaturale dans ses relations personnelles : il a téléphoné une fois 
+chez un collègue et s'est lancé dans une longue exposition de son dernier  
+idée fiscale, inconscient du fait qu’il parlait aux cinq-cinq ans de son collègue.
+ans.39 C'est Valentine qui a réalisé que si les managers prenaient une part des 
+les bénéfices d’investissement d’un hedge fund plutôt que des frais de gestion forfaitaires, ils 
+pourraient être imposés au taux des plus-values : étant donné les taux d’imposition des particuliers de  
+à l'époque, cela pourrait signifier donner 25 pour cent à l'Oncle Sam plutôt que de 
+91 pour cent.40 Jones a dûment facturé à ses investisseurs 20 pour cent de la hausse,  
+affirmant qu'il avait été inspiré pour le faire par l'histoire méditerranéenne   
+plutôt que la loi fiscale : il a dit aux gens que sa part des bénéfices était calquée sur 
+Les marchands phéniciens, qui gardaient un cinquième des bénéfices des voyages réussis.
+âges, distribuant le reste à leurs investisseurs. Digne par cet impressionnant 
+article de couverture, la commission de performance de Jones (appelée « réallocation de performance » 
+afin de le distinguer d'un bonus ordinaire qui attirerait des
+impôt sur le revenu mal) a été adopté avec bonheur par les générations successives de hedge funds 
+fonds. 
+Les raisons du secret avancées par Jones allaient au-delà du désir de conjurer la concurrence.
+teurs et réduire les impôts : il tenait à échapper à la réglementation. Il a refusé de 
+s'inscrire en vertu du Securities Act de 1933, du Investment Company Act  
+de 1940 et la loi sur les conseillers en investissement de 1940, arguant qu'aucun des 
+ces lois s’appliquaient à lui, principalement parce que ses fonds étaient « privés ».  
+Ne pas s'enregistrer en vertu de ces lois était essentiel : elles restreignaient les investissements 
+fonds provenant d’emprunts ou de ventes à découvert, les deux éléments centraux de  
+La stratégie de couverture de Jones et a également imposé des restrictions sur les frais. Pour soutenir le 
+l'idée que ses fonds étaient privés, Jones n'en a jamais fait la publicité publiquement ;  
+3 1 GRAND PAPA   
+il les commercialisait de bouche à oreille, ce qui signifiait parfois un mot  
+entre deux bouchées à sa table. Une grande partie de son capital provenait de son 
+réseau d'amis intellectuels, dont Louis Fischer, biographe de  
+Lénine et Sam Stayman, l'inventeur de la convention de pont « Stayman 
+plutôt que l’absence d’atout. »41 Jones a également pris soin de ne pas laisser trop d’investisseurs 
+son fonds. En 1961, il créa un deuxième partenariat plutôt que de permettre à son premier 
+un pour franchir le seuil autorisé de cent membres.42 
+Cette furtivité a permis à Jones et à ses imitateurs ultérieurs d'échapper aux réglementations. 
+surveillance.  Mais cela a eu un prix.  Il n'y a rien de tel que le secret pour piquer  
+la curiosité du public et, au milieu des années 1960, les hedge funds avaient commencé à  
+susciter le genre de commentaires haletants qui sont devenus monnaie courante par la suite. 
+Ils étaient « les derniers bastions de secret, de mystère, d’exclusivité et d’exclusivité de Wall Street ». 
+privilège », selon l’écrivain John Brooks ;  ils étaient « le salon  
+wagons du nouveau train à sauce. »43 Peut-être la menace d’une réglementation asphyxiante 
+a rendu le style clandestin de Jones inévitable. Mais grâce au modèle qu'il 
+Créés au cours de ces premières années, les hedge funds sont restés à jamais mystérieux, 
+sombre et irrité. 
+E V E N A S H E N T I CIPÉ L E N S APERÇU DE LA M O D E R N  
+théorie du portefeuille, Jones a payé le prix pour avoir ignoré les écrits d’Alfred Cowles. 
+Le verdict selon lequel les tendances des prix du marché sont trop faibles pour être rentables 
+se sont révélés tout à fait corrects, du moins dans le cas de Jones : ses efforts pour 
+la direction du marché a échoué aussi souvent qu’elle a réussi. En 1953, 1956, 
+et encore une fois en 1957, Jones perdit de l'argent lors de ses appels au marché, tirant parti de lui-même. 
+lorsque le marché se portait mal et vice versa. En 1960, Cowles publia 
+une mise à jour de ses recherches antérieures : il a annulé sa découverte antérieure de faiblesse 
+tendances des prix mensuels, concluant qu’elles n’existaient finalement pas.44 
+Oublié, Jones a continué à essayer de chronométrer le marché, mais sans obtenir de meilleur résultat. 
+résultats. Au début de 1962, il détenait 140 pour cent de son capital, où-
+sur le marché a chuté. Puis il est devenu baissier, mais le marché s'est redressé. 
+À un moment particulièrement pénible du mois d’août 1965, Jones eut un net 
+exposition de moins 18 pour cent, ce qui signifie que ses positions courtes dépassaient 
+ses longs à hauteur de 18 pour cent du capital de ses fonds. Parfaitement au bon moment, 
+3 2 PLUS D'ARGENT QUE DIEU   
+le marché s'est lancé dans un rallye brûlant.  Les futurs gestionnaires de hedge funds étaient  
+prouver que surfer sur les tendances peut être rentable, et les futurs universitaires devaient 
+réviser les conclusions de Cowles. Mais Jones n'a jamais réalisé de profit en suivant les 
+graphiques, même si le chartisme avait fourni la prémisse de sa couverture  
+fonds.45 
+Les méthodes statistiques de Jones ont révélé précisément combien d’argent il gagnait 
+perdre à cause de mauvais appels sur le marché.46 Mais ses fonds ont quand même bien performé.
+veloutement. La raison résidait dans une découverte sur laquelle il était tombé presque 
+accidentellement. Il avait commencé par des théories sur les tendances créées par les enquêtes.
+de sentiments, qui se sont révélés être des impasses. Il avait inventé le 
+stratégie couverte, qui était conceptuellement brillante mais pas en soi une source 
+de bénéfices. Ensuite, après avoir conçu un portefeuille couvert, il lui fallait choisir 
+stocks à mettre dedans. Par habileté et coïncidence de tempérament, 
+Jones a conçu un moyen de rassembler des sélectionneurs de titres qui battent leur pantalon  
+Wall Street. 
+Jones savait qu’il ne pouvait pas être lui-même un excellent sélectionneur de titres.  Il était un  
+novice en investissement, et les détails des bilans des entreprises n'avaient jamais été 
+captivé son imagination. Au lieu de cela, il a créé un système pour tirer le meilleur parti 
+d'autres.  Dès le début des années 1950, il invite les courtiers à gérer des « modèles  
+portefeuilles » pour son fonds : chaque homme sélectionnerait ses shorts préférés et  
+longs et téléphone aux changements comme s'il gérait de l'argent réel. Jones 
+ont utilisé ces portefeuilles papier comme source d’idées de sélection de titres.  Son état-
+méthodes statistiques, qui séparaient les fruits de la sélection de titres des fruits de la  
+effet des mouvements de marché, lui a permis de cerner les résultats de chaque manager  
+précisément. Jones a ensuite rémunéré les courtiers en fonction de la qualité de leurs 
+les suggestions ont fonctionné. C'était une merveilleuse technique pour amener les courtiers à 
+téléphone pour leur communiquer des idées brûlantes avant de les donner à d’autres.47 
+Ce système a donné à Jones un avantage sur ses concurrents.  Dans les années 1950,  
+Wall Street était un endroit endormi et simple.  Dans les universités et  
+dans les écoles de commerce, pratiquement personne ne suivait de cours de finance ;  l'investissement-
+Le cours de formation à Harvard était surnommé « Darkness at Noon », parce que l'université
+les administrateurs de l'université lui ont attribué le créneau impopulaire du déjeuner afin 
+pour économiser de l'espace en classe pour des matières plus populaires. Les administrateurs de l'ancien 
+les institutions d'investissement ont été compensées par le volume des actifs sous 
+3 3 GRAND PAPA   
+gestion plutôt que par une commission de performance, et ils ont pris des décisions 
+par comité. La méthode de Jones a brisé le moule. C'était chaque sélectionneur de titres pour 
+lui-même;  il a substitué l'individualisme au collectivisme et l'adrénaline au  
+complaisance. Même dans les années 1960, lorsque l’entreprise de Jones avait pris de l’ampleur 
+suffisant pour avoir une demi-douzaine de sélectionneurs de titres sur sa liste de salariés, il a continué à 
+cultiver un système darwinien.  Il a convoqué remarquablement peu d'investissements  
+réunions parce qu’il trouvait les comités intolérablement fastidieux.48 Au lieu de cela, il 
+a attribué à chaque manager interne une part du capital des associés,  
+a réduit l'exposition au marché souhaitée et l'a laissé investir l'argent. À 
+à la fin de chaque année, les managers les plus performants étaient aussi les meilleurs 
+récompensé
