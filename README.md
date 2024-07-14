@@ -664,3 +664,383 @@ teur, le choix était rationnel : le concept de couverture était facile à copi
 il n'était pas nécessaire de partager le butin avec un surveillant dilettante. Jones avait 
 ses avocats harcèlent son partenaire qui part mais le vieil homme encaisse le coup  
 dans la foulée;  et fin 1964, il passa ses vacances de Noël dans un
+++++
+Tir au tigre de l'Himalaya organisé par des amis indiens des Nations Unies. 
+Il y avait des sorties à dos d'éléphant, un grand feu de joie et de la bonne nourriture, et des inconsciences.
+des séances grumeleuses au cours desquelles les hôtes hindous chantaient des chants de Noël. Mais en même temps 
+Jones était absent, d’autres problèmes se préparaient. Barton Biggs, le public de 
+La blague de Jones sur l’urinoir a persuadé le plus ancien gestionnaire de fonds de Jones de démissionner 
+et démarrer un fonds rival. En sortant, le transfuge a pris quelques 
+des clients de Jones avec lui.56 
+Tôt ou tard, l’avantage de tout grand investisseur est voué à s’effriter. Son 
+les techniques sont comprises et copiées par les rivaux ; il ne peut plus prétendre 
+être plus efficace que le marché.  Les bénéfices extraordinaires de Jones avaient 
+a suscité des jalousies parmi les partenaires sur la façon dont l'argent devrait être  
+partagés, et après les deux premières défections, d’autres suivirent inévitablement.  À  
+au début de 1968, on comptait une quarantaine d'entreprises imitatrices ; en 1969, estimait-
+les compagnons allaient de deux cents à cinq cents ; et bon nombre des principaux
+les lumières étaient dirigées par des personnes qui avaient travaillé pour Jones ou l'avaient servi  
+en tant que courtiers.57 The Economist a affirmé que cette nouvelle industrie de l'investissement  
+avait environ 11 milliards de dollars sous gestion, soit cinq fois le chiffre de deux 
+années plus tôt.58 L’expression « hedge fund », une version corrompue du 
+« hedge funds » est entré dans le lexique de Wall Street59.
+Slinger était déterminé à travailler pour un. 
+Les premiers effets de ce dénouement furent paradoxaux. En tant que premier imitateur 
+les fonds ont surgi, la nouvelle de la rue s'est répandue et Jones est devenu considéré comme 
+le fondateur d'un nouveau mouvement en vogue. Un profil flatteur est apparu dans For-
+en 1966 : « Il y a des raisons de croire que les meilleurs professionnels
+Le gestionnaire de l’argent des investisseurs est aujourd’hui un homme à la voix calme et rarement photographié. 
+homme nommé Alfred Winslow Jones », commençait l'article, bien que d'une manière ou d'une autre 
+Fortune avait obtenu une grande photo de Jones, le montrant avec une épaisse  
+chaume de cheveux blancs et de grandes lunettes à monture sombre.60 Les investisseurs se sont effondrés.  
+les uns les autres pour injecter de l'argent dans les fonds Jones, de jeunes analystes ambitieux 
+sont venus chercher du travail et, pendant un certain temps, la fête a continué61. Jones lui-même 
+on disait qu'il gagnait «quelque chose par millions», et les Jones ont déféqué.
+Les investisseurs récoltaient également de l'argent : un partenaire de City Associates a acquis 
+un penthouse, un hélicoptère, une cave à vin et des gardes du corps ;  son bureau était 
+
+composé de femmes aux courbes généreuses qui auraient été secrétaires.62 Tout cela ajoutait 
+aux potins, à l'envie et au plaisir. Les hedge funds incarnaient l'esprit de 
+l'âge; et comme le proclamait le magazine New York en 1968, A. W. Jones était 
+leur grand papa. 
+Ce boom a attiré l’attention des régulateurs, tout comme d’autres acteurs de la couverture.
+les booms des fonds l’ont fait plus tard.  En 1968, la Bourse de New York et le  
+La Bourse américaine a commencé à envisager des restrictions sur ses membres.
+les relations des investisseurs avec les hedge funds.  En janvier 1969, la Securities and  
+La Commission des changes a envoyé un questionnaire à deux cents couvertures  
+fonds, exigeant de savoir « qui ils sont, comment ils sont nés,   
+la manière dont ils sont organisés » – et surtout « quel impact sur leurs 
+les échanges commerciaux peuvent avoir sur le marché. »63 Les responsables de la Commission n’ont pas caché 
+du fait qu'ils voulaient que les hedge funds s'enregistrent sous l'un des
+actes généraux, mais certaines des plaintes concernant les nouveaux arrivants semblaient un peu 
+curieux. On disait que les hedge funds représentaient la moitié des intérêts à court terme 
+dans certains titres ;  personne n'a expliqué pourquoi cette vente à découvert, qui pré-
+a probablement empêché des entreprises indifférentes d'atteindre des objectifs non durables.  
+les valorisations boursières, pourraient être pernicieuses.  Il a été noté que les hedge funds  
+ont restructuré leurs portefeuilles de manière plus agressive que les fonds communs de placement, mais  
+D’une manière ou d’une autre, cette augmentation de la liquidité du marché a été présentée comme une mauvaise chose.  
+Il y avait une histoire à propos d'un manager d'A.W. Jones qui avait acheté un grand 
+un matin, je l'ai bloqué dans une entreprise de go-go et je l'ai vendu après le déjeuner. Personne 
+pourrait expliquer comment ce crime présumé a nui à qui que ce soit. Même s'ils 
+pouvaient être enviés et adorés, les hedge funds faisaient également l'objet de non-
+ressentiment tout à fait rationnel. 
+Au cours des trois années commençant à l’été 1966, les investisseurs de Jones  
+des rendements empochés, après soustraction des frais, de 26 pour cent, 22 pour cent et  
+47 pour cent.64 Mais cet été indien cachait des problèmes. Les fonds Jones 
+perdaient leur avantage distinctif : leurs sélectionneurs de titres faisaient défection pour rejoindre  
+ont créé des sociétés rivales, et les principes de couverture de Jones ne semblaient plus aussi pertinents.
+evant. Le modèle des hedge[d]-funds méritait d’abandonner son d : rattrapé par le 
+marché haussier, les hommes de Jones en sont venus à considérer la vente à découvert comme un jeu de dupes et 
+perdu tout intérêt à protéger le fonds contre une chute du S&P 500. Au lieu de cela, 
+
+ils ont repoussé les limites de l'effet de levier : chaque gestionnaire de segment était absent 
+pour acheter autant d'actions go-go que possible.  Même les calculs de vitesse  
+tombé à l'eau. Les hommes de Jones n'aimaient pas qu'on leur dise d'acheter moins de 
+un titre chaud simplement parce qu'il pourrait être volatil. Parce que la bourse 
+rugissait, et comme Jones lui-même était de plus en plus absent, le titre 
+les cueilleurs faisaient ce qu'ils voulaient65. C'était les années soixante ; ils étaient jeunes ; le 
+le marché appartenait à leur génération. 
+Pendant la majeure partie de sa vie financière, Jones a eu de la chance. Il avait ouvert son 
+hedge funds au moment où le traumatisme du krach commençait à se dissiper : 
+En 1950, seul un adulte américain sur vingt-cinq possédait des actions ;  par le  
+à la fin des années 1950, c’était le cas d’une personne sur huit66. À mesure que les sociétés de courtage de détail se développaient   
+dans chaque rue commerçante, l'indice S&P 500 est passé de 15 à l'époque de Jones. 
+lancement jusqu'à un sommet de 108 à la fin de 1968, et entre-temps, la culture financière
+La situation a changé : les banquiers fiduciaires ont été éclipsés par des types go-go pour qui 
+l’accident était de l’histoire ancienne. La nouvelle génération croyait que les finances 
+la tourmente ne reviendra plus jamais. La Fed surveillait 
+économie, la SEC surveillait le marché et le budget keynésien 
+les politiques avaient abrogé la tyrannie du cycle économique. Cet état de bonheur-
+Cet optimisme total a trouvé son apothéose dans le Great Winfield, le 
+investisseur immortalisé par Jerry Goodman, écrivain financier et grand public.
+lanceur de sorts devenu célèbre sous le pseudonyme «Adam Smith».  Le  
+Great Winfield confie son argent à des managers d'une vingtaine d'années avec  
+pas de souvenirs et pas de peur, dont la principale vertu est l'inexpérience. "Montre-moi 
+un portefeuille, je vais vous dire la génération », dit-il. "Vous pouvez dire à l'échangiste 
+stocks parce qu’ils effraient toutes les autres générations [plus âgées].”67 
+Jones avait pris très tôt l’ère du go-go. Une partie de sa richesse, cependant 
+certainement pas tout, était le résultat d’un long marché haussier.  Mais le  
+la structure multimanager qui habilite les gestionnaires de segments go-go était  
+pas conçu pour sauver Jones d’un renversement soudain – un problème qui se pose à plusieurs reprises.
+Les gestionnaires de hedge funds devaient le découvrir plus tard. Au contraire : plus 
+plus le marché augmentait, plus le système de suivi des performances de Jones était récompensé 
+des gestionnaires de segments agressifs qui ont pris le plus de risques. Il n'y avait pas mécanisme permettant de sortir avant que la catastrophe ne survienne ; et en mai 1969 le stock 
+le marché a commencé à chuter fortement, perdant un quart de sa valeur au cours de la période suivante 
+
+année. Lorsque Jones a publié ses résultats pour l'année se terminant en mai 1970, il 
+était obligé de dire à ses clients qu'il avait fait encore pire que le mar-
+ket. Il avait perdu 35 pour cent de leur argent.68 
+En septembre suivant, Jones a célébré son soixante-dixième anniversaire. C'était 
+un moment de fête pour sa famille : la belle-fille de Jones était attendue
+ing son premier petit-enfant, et les fiançailles de mariage de sa fille étaient  
+annoncé lors de la fête d'anniversaire. Un chapiteau a été installé sur la pelouse de 
+sa maison de campagne bien-aimée, en haut de la colline depuis le court de tennis sur gazon qu'il 
+nourri comme un bébé.  Le groupe jouait de la musique de danse et les jeunes  
+les hommes échangèrent des suppositions sur l’identité du fiancé de Miss Jones. Mais le 
+Le patriarche n’était pas en forme.  Il craignait que ses responsables de segment ne  
+Je déteste l’extravagance de l’occasion : « Je déteste que les garçons me voient dépenser
+gagner de l’argent comme un marin ivre », répétait-il.69 Après deux décennies  
+Éminemment, l’avantage d’investissement de Jones avait disparu. Les marchés avaient enfin 
+le rattrapa. 
+ 
+
+
+chapitre 2
+
+gène de son père, Steinhardt était vraiment ravi de prendre ces risques. 
+« Le trading est passé d’une fonction mécanique, insignifiante, semblable à celle d’un employé. 
+dans les années cinquante et soixante à une fonction de grande importance dans les années soixante-dix 
+et les années quatre-vingt », a déclaré Steinhardt plus tard. 31 
+Tous les nouveaux marchés sont inefficaces au début, et cette inefficacité signifie des profits.
+c'est pour les premiers adaptateurs. Les courtiers avec lesquels Steinhardt traitait étaient abattus.
+ing de la hanche. Il y avait peu de directives commerciales régissant le type de transactions 
+la réduction était logique pour une taille de bloc donnée ; les patrons qui plus tard 
+les règles commerciales et les contrôles des risques étaient encore inexplorés 
+territoire.  Dans cet état de nature, gagner de l’argent pourrait être aussi simple que de prendre
+manger des bonbons d'un bébé, pour reprendre une phrase que Steinhardt aimait : Une fois qu'il  
+s'est vu offrir 700 000 actions fortement décotées de Penn Central, la banque -
+entreprise ferroviaire en faillite; il les a achetés et revendus aussitôt, réalisant plus 
+plus d’un demi-million de dollars en l’espace de huit minutes.32 Vers 1970, 
+Salomon Brothers a décidé de devenir la troisième grande maison de négoce de blocs, 
+aux côtés de Goldman et Oppenheimer. Pour s'imposer comme un grand acteur, il 
+était disposé à absorber de grandes quantités de stock à des prix très réduits, permettant 
+Steinhardt achètera des blocs à prix très réduit ailleurs et les déchargera 
+sur Salomon pour un gros profit.33 
+Les bizarreries réglementaires ont créé encore d’autres opportunités. Jusqu'à ce que la sécurité
+Les relations et la Exchange Commission sont intervenues vers la fin des années 1970, 
+certaines parties de l'activité de négociation de blocs étaient transparentes tandis que d'autres  
+étaient enveloppés d’ombres. Si vous avez négocié avec Goldman ou Salomon, les entreprises 
+qui étaient membres de la bourse, le prix et l'ampleur de la transaction
+l'action serait rapportée sur la bande téléscripteuse qui était regardée par tous  
+investisseur; si vous bénéficiiez d’une réduction, tout le monde le savait. Mais si tu as échangé 
+sur le soi-disant marché tiers avec des courtiers qui n'étaient pas membres du 
+bourse, aucune transaction n’a été signalée.  Steinhardt s'est spécialisé dans  
+récupérer les bonnes affaires non déclarées sur le troisième marché, puis les décharger 
+rapidement avant que quiconque ne réalise ce qui se passait. 
+Plus Steinhardt faisait du commerce, plus il découvrait qu'il pouvait gagner de l'argent. 
+Les transactions sur le marché tiers, par exemple, n'ont fonctionné que grâce à Stein.
+Hardt a la réputation d'être un grand échangiste. Courtiers qui devaient se débarrasser des actions 
+se tourna rapidement et discrètement vers lui instinctivement car c'était lui 
+
+gestionnaire de fonds ayant le courage d'acheter un demi-million d'actions grâce à sa force 
+d'un bref appel téléphonique.  De même, Steinhardt a pu revendre ces actions  
+à cause de qui il était. Son partenariat a été un énorme générateur de commis-
+des sessions pour les courtiers, de sorte que les traders d'Oppenheimer, Salomon et Goldman 
+on pouvait compter sur lui pour l'aider. 
+« Je dirais [au courtier] : « J'ai reçu ce bloc dans le troisième, quelques heures plus tard. 
+il y a. Je l'ai racheté d'un point. Veux-tu travailler avec moi ?’ » Stein-
+se souvient Hardt.  "En baisse d'un point" signifiait que Steinhardt avait reçu un  
+rabais sur chaque action de 1 $. 
+"Combien d'actions?" » demanderait le courtier. 
+"Quatre cent mille." 
+"Que veux-tu pour eux?" 
+"Pourquoi ne pas en faire deux cent mille, soit un huitième de plus", Steinhardt 
+dirait. 
+"En hausse d'un huitième !?" Le courtier ferait une double prise. Steinhardt était 
+suggérant qu'ils vendent les actions décotées à un tiers sans méfiance 
+fête pour 12,5 cents de plus que le prix indiqué sur la cassette. 
+« Ouais, eh bien, nous devons attirer des acheteurs. Mettons-en un huitième 
+et cela ressemblera à un échange positif. »34 
+Assez souvent, ce bluff fonctionnait. Personne ne savait qu'un énorme bloc 
+avait été vendu plus tôt à rabais sur le marché tiers opaque, donc investir-
+Les investisseurs pourraient être persuadés d’acheter à un prix plus élevé. Même après avoir payé le frère
+Grâce à la commission du ker, Steinhardt dégagerait un beau bénéfice. 
+Quel que soit le scepticisme des universitaires quant à la capacité des sélectionneurs de titres à battre 
+le marché, il n'était pas du tout mystérieux que les traders de blocs devaient surpasser-
+l'exécuter. Les traders de blocs avaient trouvé une nouvelle approche : ils ne l’étaient pas 
+engagé dans le travail surchargé d'analyse des données de l'entreprise et  
+sélectionner les actions qui fonctionneraient bien ; au lieu de cela, ils visaient à gagner de l'argent 
+en fournissant quelque chose dont les autres investisseurs avaient besoin : des liquidités. Le nouveau 
+les dépositaires institutionnels de l’épargne cherchaient à échanger de gros blocs  
+stocks rapidement et discrètement, et ils étaient prêts à payer le gars qui 
+a rendu cela possible. Le génie de Steinhardt était d’obtenir de bons honoraires pour des projets.
+fournir des liquidités, comme lorsqu'il a obtenu une forte remise sur un bloc de troisième-
+bourse; et en même temps de payer peu ou rien à ceux qui 
+
+lui a fourni des liquidités, comme lorsqu'il a réussi à se débarrasser du marché tiers 
+titre à 12,5 cents au-dessus du marché. 
+Bien qu'il n'ait pas exprimé ce point de cette façon, Steinhardt avait exprimé son point de vue 
+mettre le doigt sur une faiblesse de la théorie du marché efficient. La théorie soutient que le 
+le prix du marché contient toutes les informations pertinentes sur un titre ; c'est pourquoi 
+battre le marché est presque impossible. À moyen et long terme, cela 
+la théorie peut être à peu près vraie. Mais à court terme, l'information est souvent 
+pas le principal moteur des prix. Au lieu de cela, les cours des actions rebondissent parce que 
+des changements de minute en minute dans l’appétit des investisseurs. Une compagnie d'assurance 
+doit vendre un grand bloc de stocks pour payer les réclamations liées aux dommages causés par la tempête : le vendeur
+La pression exercée fait baisser les prix. Un fonds de pension doit acheter un gros bloc 
+d'employer un nouvel afflux de liquidités provenant des travailleurs : la pression d'achat pousse 
+hausse des prix.  Dans les modèles de marché efficace, ces chocs de prix temporaires sont  
+ignoré; la liquidité est supposée parfaite35. Le monde réel est différent. 
+Cette faille dans les modèles de marché efficaces devient particulièrement prononcée 
+lorsque la demande de transactions importantes augmente et que les structures du marché se sont 
+il reste encore du temps à s’adapter – comme cela s’est produit à la fin des années 1960 et dans les années 1970 et 1980. 
+Pendant quelques années après le début des échanges de blocs, des ventes importantes pourraient entraîner une  
+le titre s’éloigne fortement du prix « efficace » – celui qui reflète l’ana-
+La meilleure évaluation par Lyst de toutes les informations connues liées aux revenus.  Ces  
+les perturbations à court terme ont créé des opportunités que les traders alertes ont pu saisir  
+et Steinhardt s’en empara agressivement36. De plus, les grands  
+La beauté de la méthode de Steinhardt était qu’elle était difficile à copier.  Sur ce mur   
+Street avait compris la mécanique du modèle d'A.W. Jones, deux cents
+De nombreux imitateurs avaient surgi. Mais l’activité de négoce de blocs de Steinhardt était 
+protégés par des « effets de réseau » qui créaient des barrières à l’entrée. Steinhardt 
+a reçu les gros appels des courtiers en trading de blocs parce qu'il avait une réputation-
+tion pour recevoir les gros appels. Il pourrait échanger pour se sortir des gros achats 
+parce qu'il disposait du réseau de relations avec les courtiers qui accompagnait le fait d'être un 
+grand commerçant. Les rivaux potentiels ont été confrontés à un catch-22 frustrant alors qu'ils se précipitaient 
+pour le rattraper. 
+Il y avait une particularité de moins dans le bord Steinhardt. Ça a poussé 
+les limites de ce qui était légal. 
+    L E B L O C K T R A D E R   
+Avant d'aller aux choses ombragées, repensez à   
+la question de la liquidité. Lorsqu'un gros bloc de stock arrive sur le marché
+ket, les acheteurs potentiels ne peuvent pas dire si le vendeur sait quelque chose de spécial. 
+Peut-être que le vendeur a été informé que l'entreprise était sur le point de réviser ses 
+gains en baisse. Peut-être qu'il sait qu'une autre grande institution est sur le point de 
+céder des actions dans la même entreprise. Parce que les acheteurs ne savent pas ce qu'ils 
+Je ne sais pas, ils hésitent avant d’enchérir sur 400 000 actions. Craignant que 
+ils peuvent être désavantagés en matière d'information, ils exigent une réduction dans 
+échange pour la fourniture de liquidités. 
+Comment Steinhardt pouvait-il gagner de l’argent dans de telles circonstances ?  Encore,  
+L’échelle de Steinhardt était importante : il effectuait énormément d’échanges de blocs, et  
+générait tellement de commissions pour les courtiers qu'il pouvait s'attendre à des commissions spécifiques.
+informations officielles.37 Théoriquement, les courtiers n'étaient pas censés 
+identifier leurs clients; si un vendeur arrivait sur le marché avec 400 000 actions,
+l’identité du vendeur était secrète. Les courtiers n'étaient pas censés laisser tomber, car 
+exemple, que le vendeur était une caisse d'assurance en difficulté et donc que 
+il vendait probablement pour des raisons de liquidité – auquel cas son bloc distribuait
+compter représenterait une bonne affaire.  Mais, en tant que client privilégié des courtiers,  
+Steinhardt pouvait s’attendre à quelques contournements créatifs des règles38. Si le vendeur 
+était un hedge fund intelligent plutôt qu'un assureur, le courtier pourrait éviter  
+invitant Steinhardt à devenir acheteur, puisque le hedge fund pourrait être vendu.
+ing sur la base d’informations baissières.  Ou si la vente représentait le  
+premier ordre de vente d’une grande série, le courtier peut émettre un avertissement discret.39 
+« L’idée n’était pas d’essayer de blesser qui que ce soit. Vous vouliez faire affaire avec 
+eux », a déclaré John Lattanzio, un négociant de blocs de Goldman Sachs, rappelant le 
+l’atmosphère clubby des années 1970.40 « Vous diriez : ‘N’achetez pas le premier
+Dred, il y en a quatre cents derrière ça", a ajouté Will Weinstein, le responsable  
+trader chez Oppenheimer, expliquant que les traders de gros blocs cherchaient 
+faire « des choses qui n’étaient pas collusoires mais qui étaient simplement des tentatives honnêtes de pro-
+protéger les uns les autres. »41 Comment Weinstein a-t-il pu voir cela comme autre chose que 
+la collusion est un mystère. 
+
+Parfois, la collusion était plus élaborée. Un courtier pourrait appeler pour dire 
+qu'une grande institution était sur le point de se débarrasser de 500 000 actions de ce type et  
+donc peut-être que Steinhardt devrait être vendeur à l'avance, avant la vente.
+ing arrivé sur le marché. Puis, quand la grosse commande est arrivée et que les actions 
+commençait à descendre, Steinhardt couvrirait son short en achetant la queue 
+fin de la commande au prix nouvellement déprimé, empochant ainsi de l'argent facile. 
+Du point de vue du courtier, la dénonciation à Steinhardt positionnait son  
+hedge fund pour agir en tant qu'acheteur pour la dernière tranche de la grande vente : cela a aidé 
+la vente doit avoir lieu sans que le prix baisse autant qu'il aurait pu, 
+faisant passer le courtier pour un génie aux yeux du vendeur.42 Mais le piège 
+était que la vente à découvert de Steinhardt avait fait baisser le marché avant le  
+la transaction avait commencé : la vente en bloc s'est déroulée à un moment proche du 
+prix du marché parce que le marché avait été abaissé en préparation. Cette plate-forme-
+ging était une violation flagrante des règles. Le vendeur avait engagé le courtier pour obtenir 
+le meilleur prix pour ses actions, mais le courtier l'avait vendu à Steinhardt. 
+À distance de sécurité de trois décennies, Steinhardt est remarquablement franc 
+à propos de ça.  «On m'a dit que d'autres comptes n'étaient pas disponibles.  
+dit », dit Steinhardt, décrivant les mécanismes de sa collusion avec les frères.
+kers. « J’ai obtenu des informations que je n’aurais pas dû avoir. Cela a créé beaucoup d'opportunités 
+pour nous. Étaient-ils risqués ? Oui. Étais-je prêt à le faire ? Oui. Ont-ils parlé 
+à peu près beaucoup ? Pas particulièrement. »43 
+IL EST S I M P O S S I B L E DE QUANTIFIER LA C O N T R I B U T I O N DE  
+bloquer les échanges avec Steinhardt, Fine, Berkowitz. Steinhardt lui-même dit que 
+cela « représentait une part significative du bruit, mais pas des bénéfices ». 
+mais plus vous écoutez ses descriptions du trading, plus vous 
+Je soupçonne qu’il en minimise l’importance.44 Certes, l’accent mis sur  
+le commerce représentait l’avantage le plus distinctif du partenariat ; et c'est sûrement 
+ce n'est pas un hasard si, parmi les trois partenaires fondateurs extrêmement doués, c'est  
+C'est Steinhardt qui est devenu une légende.  Durant vingt-huit  
+années sur les marchés, Steinhardt a subi des pertes en seulement quatre ans.  Le problème-
+La capacité que cela se produise est d’une personne sur onze mille.45 À un moment donné, le 
+Les problèmes de lancer de pièces de monnaie deviennent inutiles. Mais il y a une autre question concernant le trading de Steinhardt. Si sa collusion 
+était connue à l'époque, la Securities and Exchange Commission pourrait-elle
+La Commission a ravivé son intérêt pour la réglementation des hedge funds – et pourrait-elle 
+L'histoire de l'industrie a-t-elle été sensiblement différente ? Collusion entre 
+Les hedge funds et les grands courtiers étaient parfois soupçonnés, bien sûr ; mais ça 
+n'a jamais été prouvé. Au cours des années 1970, la Securities and Exchange Com-
+Cette mission est venue une fois après Steinhardt : elle prétendait qu'en janvier 1970, son  
+Le partenariat avait acheté un bloc important d'actions de Seaboard Corpora-
+tion, apparemment comme une faveur à un courtier qui voulait augmenter son prix à l'avance 
+d'une offre publique ; la SEC a soutenu que Steinhardt avait agi sur la base des 
+étant entendu qu'elle serait indemnisée pour toute perte. Mais en 1976 
+Steinhardt a réglé l’affaire sans admettre d’actes répréhensibles46.
+L’idée d’un comportement collusoire sur le marché n’est restée que cela : un soupçon. 
+Pour autant, il n’est pas certain que l’aveu de Steinhardt aurait fait pencher la balance. 
+la balance est en faveur d’une répression réglementaire, encore moins qu’elle ne le devrait  
+avoir. Dans la mesure où Steinhardt agissait sur la base d'informations privilégiées, 
+les régulateurs étaient déjà habilités à le poursuivre – comme ils l’ont fait dans le passé.  
+Incident du littoral.  En outre, une partie du succès de Steinhardt reflète la réglementation.
+bizarreries historiques qui n'étaient pas de sa propre initiative.  En 1975 et encore en  
+En 1978, les régulateurs ont reconnu leurs propres échecs et ont cherché à mettre 
+ils ont raison : ils ont entrepris de faire sortir le troisième marché bien-aimé de Steinhardt 
+des ombres, insistant d'abord pour que toutes les transactions boursières soient imprimées sur un 
+nouvelle « bande consolidée », stipulant ensuite que les offres et les offres sur les actions 
+être rapporté de la même manière47. L’intention était de diffuser des informations commerciales 
+de manière égale à tous les acteurs du marché, érodant ainsi le côté injuste de la situation intérieure de Wall Street. 
+cercle. 
+Pourtant, la raison principale pour retenir l’indignation est plus fondamentale : considérée comme 
+dans l’ensemble, les activités de Steinhardt étaient bonnes pour l’économie.  La recherche  
+pour le pistolet fumant de « perturbation du marché », sur lequel les Securities et 
+Exchange Commission lancée en 1969, s'était soldée par un échec car 
+aucune perturbation n’a pu être identifiée.  De même, le succès de Steinhardt,  
+Très bien, Berkowitz, au cours des années qui ont suivi, n’a pas perturbé les marchés. Ça poignarde-
+les a ilisés. 
+Deux thèmes du succès de la jeune troïka étaient incontestablement bons  
+
+pour la stabilité du système financier.  L’opposition du partenariat
+Le isme a apporté une petite contribution à l’amortissement des fluctuations perturbatrices de l’économie.  
+cours des actions : La troïka vendue pendant la bulle de 1972 ; ça a duré longtemps 
+la fin de 1974, lorsque le marché post-crash avait désespérément besoin de  
+acheteurs.  De même, en étant pionnier dans l’application de l’analyse monétaire à  
+marchés boursiers, le partenariat a apporté une nouvelle sophistication à la tarification 
+d'actifs. Si les cycles de bulle à éclatement de 1968-70 et 1972-74 reflétaient 
+La naïveté de Wall Street face à l’inflation, les techniques analytiques de Tony Cilluffo 
+a rendu de telles bulles moins probables à l’avenir. 
+Et puis il y a eu la question de l’échange de blocs. La collaboration de Steinhardt
+L'illusion avec les grands courtiers a parfois porté préjudice aux investisseurs étrangers, qui  
+auraient pu obtenir de meilleurs prix pour leurs actions si les initiés n’avaient pas corrigé 
+le marché.  Les investisseurs externes comprenaient des fonds communs de placement et des fonds de pension
+fonds, de sorte que les perdants finaux étaient les Américains ordinaires, tandis que les gagnants
+Les millionnaires étaient les millionnaires qui ont investi avec Steinhardt. Mais ce revers 
+L’histoire de Robin des Bois ne représente pas tout.  Le business du trading de blocs  
+a grandi parce que les investisseurs étrangers avaient besoin de liquidités pour déplacer de gros morceaux 
+de stock; en offrant aux étrangers une opportunité de commercer, Stein-
+Hardt les aidait. Ce n'est pas comme si les investisseurs institutionnels 
+profité des avantages de marchés merveilleusement efficaces, pour ensuite avoir un mal 
+les hedge funds les corrompent. Au contraire, les investisseurs institutionnels ont été confrontés à de mauvais résultats.
+des marchés qui se sont avérés très inefficaces à court terme. La contribution de Steinhardt 
+était d'offrir des liquidités qu'ils étaient libres d'utiliser ou d'ignorer, et le fait 
+qu’ils aient choisi de l’utiliser était révélateur. Selon toute vraisemblance, le service Stein-
+Les difficultés qu’il a fournies ont contrebalancé les effets de ses actes répréhensibles. 
+Si cela vous semble trop charitable, revenons à 1987. Le marché boursier 
+L'accident survenu en octobre de la même année a fourni une leçon sur ce que pourrait être la vie  
+comme sans Steinhardt et ses homologues commerciaux.  À la suite de  
+Lundi noir, les grands bureaux de trading de blocs se sont retirés des affaires.
+ness, et le résultat fut un tollé furieux. Le New York Times a rapporté dans 
+décembre, où les blocs de 25 000 actions ont désormais perturbé les cours autant 
+Des blocs de 100 000 partages avaient été réalisés avant le crash ; le marché s'était développé 
+horriblement instable.48 La simple rumeur selon laquelle une institution pourrait vendre un 
+le bloc de Ford ou d'IBM a suffi à faire baisser le cours de l'action ; parce que 
+
+les négociants en bloc s'étaient retirés de manière irresponsable, des entreprises innocentes étaient 
+étant endommagé. Dans une tournure qui a remis les débats des années 1960 et 1970 
+sous un tout nouveau jour, la SEC a promis d'enquêter sur le manque troublant de 
+bloquer les échanges. La seule chose pire que les hedge funds à négociation rapide était un 
+leur disparition soudaine. 
+Steinhardt négociait sur les marchés comme s'il menait une guerre, et 
+l'effort l'épuisait.  À l'automne 1978, il a pris un congé sabbatique  
+son entreprise, déclarant que son objectif était de réduire son tour de taille et d'élargir son 
+tête : trouver un sens à la vie au-delà de l’accumulation de richesses. Certains ont dit qu'il 
+il part peut-être pour de bon, mais d'autres avaient des doutes ; "il y a autant 
+chance pour Michael d'abandonner Wall Street pendant un an comme il y en a pour Vladimir 
+Horowitz abandonne définitivement le piano », insiste un ami49.  
+Il s'est avéré que Steinhardt a réussi à rester à l'écart du trading jusqu'à l'automne 
+de l'année suivante. Puis il est revenu en trombe, a rompu avec ses partenaires, 
+et a marché dans les années 1980
+
+
+
+
+chapitre 3
